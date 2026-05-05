@@ -1,0 +1,1 @@
+Throw money to max learning. Read free sample ebooks on Amazon Australia online. Buy physical book to read to prevent eyes skipping on certain words. If book is good, then make note of book title, author’s full name and book ISBN. If future research needs arises, then buy ebook to capitalise on its keyword search feature.

@@ -1,0 +1,1 @@
+When dining at a steak restaurant with your partner, person A ordered Steak A with fries and no sauce. Person B ordered Steak B with salad and no sauce. Ask for two free side plates to place half fries and half salad per side plate to save money. No need to order another bowl of salad or another bowl of fries by itself. This saves money.

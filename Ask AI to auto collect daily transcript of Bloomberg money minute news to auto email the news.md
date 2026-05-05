@@ -1,0 +1,1 @@
+Ask AI to auto collect daily transcript of Bloomberg money minute news to auto email the news snippet to you. 

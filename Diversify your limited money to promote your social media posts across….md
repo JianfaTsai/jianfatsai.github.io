@@ -1,0 +1,1 @@
+Diversify your limited money to promote your social media posts across TikTok, YouTube, and Instagram instead of relying only on a single social media platform. Don't put all your money in one basket.   

@@ -1,0 +1,1 @@
+# The problem of app no internet connection notifications due to WiFi connection deprioritised after logging into Mac mini. 

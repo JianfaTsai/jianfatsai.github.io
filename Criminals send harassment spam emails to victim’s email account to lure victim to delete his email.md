@@ -1,0 +1,1 @@
+Criminals send harassment spam emails to victim’s email account to lure victim to delete his email account to indirectly lock out victim’s child’s game app account to sow discord by victim and his child where victim’s child’s years of game progress and items that require real life money to buy is locked and gone.

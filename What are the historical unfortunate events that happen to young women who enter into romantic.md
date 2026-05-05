@@ -1,0 +1,1 @@
+What are the historical unfortunate events that happen to young women who enter into romantic relationships where the power favours the much older, and wealthier experienced men?

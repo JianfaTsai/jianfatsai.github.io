@@ -1,0 +1,1 @@
+Max profits by implementing a feature to drag and drop a board/image in the Freeform macOS app, to save as an image in the Photos macOS app. The user also cannot share a board in the Freeform app to save as an image in the Photos app. \#tech 

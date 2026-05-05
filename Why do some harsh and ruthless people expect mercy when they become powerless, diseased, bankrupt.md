@@ -1,0 +1,1 @@
+Why do some harsh and ruthless people expect mercy when they become powerless, diseased, bankrupt or old?

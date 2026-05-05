@@ -1,0 +1,1 @@
+Integrate academic database boolean search operators and other advance search functions in macOS, iPadOS and iOS spotlight search to max profits and charity donations. 

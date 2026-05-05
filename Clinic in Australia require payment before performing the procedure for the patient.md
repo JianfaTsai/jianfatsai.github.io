@@ -1,0 +1,1 @@
+Clinic in Australia require payment before performing the procedure for the patient.

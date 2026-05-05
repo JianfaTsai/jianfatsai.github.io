@@ -1,0 +1,1 @@
+Time spent on fixing grammar to perfection is time wasted. The time could instead be used on higher value tasks e.g. creating billion dollar insights to max management profits. 

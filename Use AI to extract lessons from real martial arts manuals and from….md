@@ -1,0 +1,1 @@
+# Use AI to extract lessons from real martial arts manuals and from fictional martial arts manuals, e.g., from China's Jin Yong martial arts novels and from fictional martial arts novels and philosophies from 200 countries worldwide.   

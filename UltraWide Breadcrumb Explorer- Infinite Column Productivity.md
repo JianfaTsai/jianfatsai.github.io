@@ -1,0 +1,3 @@
+# UltraWide Breadcrumb Explorer: Infinite Column Productivity
+
+Max profits for global governments, corporations, military, intelligence agencies, police and crime syndicates by capitalizing on the 49 inch ultra wide monitors to create a file manager app that integrates the concepts of web breadcrumbs where a single app window in column view don’t show contents within a single folder, but also enable breadcrumbs active view of folders and files of the previous instances all side by side with the current selected folder/file. This reduces steps and errors, and allows users to maximize productivity. 

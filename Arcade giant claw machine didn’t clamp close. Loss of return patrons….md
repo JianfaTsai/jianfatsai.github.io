@@ -1,0 +1,1 @@
+Arcade giant claw machine didn’t clamp close. Loss of return patrons to arcade and in turn loss of mall, other retail and restaurants profits. It’s not about getting the toy. It’s about the claw not closing at all. See CCTV.  
