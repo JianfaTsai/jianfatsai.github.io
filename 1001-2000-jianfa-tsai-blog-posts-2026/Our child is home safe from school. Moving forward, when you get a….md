@@ -1,0 +1,1 @@
+Our child is home safe from school. Moving forward, when you get a Find My iPhone app notification that we reached home, it means we are home. You can also check the home security camera app and the living room CCTV to double-check that our child is indeed home. Thanks.   

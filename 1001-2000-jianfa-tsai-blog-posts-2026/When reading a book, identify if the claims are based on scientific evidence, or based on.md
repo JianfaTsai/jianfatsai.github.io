@@ -1,0 +1,1 @@
+When reading a book, identify if the claims are based on scientific evidence, or based on anecdotal evidence or author’s assertion 
