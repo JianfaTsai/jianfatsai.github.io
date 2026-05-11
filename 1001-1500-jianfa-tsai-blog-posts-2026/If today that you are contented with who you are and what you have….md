@@ -1,0 +1,1 @@
+# If today that you are contented with who you are and what you have, you won’t spend money on impulse purchases, shopping, restaurants, gambling, brothels, smoking, alcohol or other vices to feel better. Then you won’t take on more debt.   

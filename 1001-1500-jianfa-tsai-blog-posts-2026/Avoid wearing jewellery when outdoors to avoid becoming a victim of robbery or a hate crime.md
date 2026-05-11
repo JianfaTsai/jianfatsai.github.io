@@ -1,0 +1,1 @@
+# Avoid wearing jewellery when outdoors to avoid becoming a victim of robbery or a hate crime. 

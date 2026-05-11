@@ -1,0 +1,1 @@
+# Daniel = Jianfa’s secondary school friend = he taught that lending $20 to a friend where the friend won’t return the money that the friend borrow is a low cost way to know if the friend is of good character or bad personality. #jianfa   

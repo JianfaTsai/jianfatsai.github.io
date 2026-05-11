@@ -1,0 +1,1 @@
+# Implement a feature that lets creators turn on AI to automatically move comments on their uploaded YouTube videos to the spam folder, without the troll comments being seen by creators, for the psychological wellness of content creators and to maximise creators' and YouTube's profits.   

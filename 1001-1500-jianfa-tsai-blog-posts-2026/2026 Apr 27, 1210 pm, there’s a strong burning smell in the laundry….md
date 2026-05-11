@@ -1,0 +1,1 @@
+# 2026 Apr 27, 12:10 pm, there’s a strong burning smell in the laundry room of the ground floor of my home. Could it be that the neighbours are burning something illegally, which could pose a fire hazard?  

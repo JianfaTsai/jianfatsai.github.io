@@ -1,0 +1,1 @@
+Jianfa Tsai used to wear a heart rate monitor strap and a device around his chest to measure his heart rate while jogging. 
