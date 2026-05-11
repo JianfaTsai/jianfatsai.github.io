@@ -1,0 +1,1 @@
+I think it’s cheaper to buy the movie from Apple TV. I don’t like going to the cinema because I've had a few experiences of crime and people kicking my seat. We need to save money for our child’s future. Sorry, I’m not going. You can go if you want. I look after our child at home.   

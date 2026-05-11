@@ -1,0 +1,1 @@
+# After you have highlighted and copied a body of text, click away or remove the highlight on the body of text to prevent data loss due to accidental key overwrite or malicious cybercriminal or corporate colleague tampering.   

@@ -1,0 +1,1 @@
+# To test whether the Gemini macOS app removes duplicates, copy and paste a file into folders A and B, then tell Gemini to search folders A and B to see if it returns search results indicating that there are duplicates in folder A and B.  

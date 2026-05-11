@@ -1,0 +1,1 @@
+# Maximise global productivity by having back up second critical apps of the same product type of your main app e..g note taking and dictation apps. Sharing this globally via social media deny the number of future cybercriminals disruption or hacking by reducing the damage severity.  

@@ -1,0 +1,1 @@
+# John once met a group of online friends for dinner at the hawker centre in Serangoon Gardens, Singapore. A spoilt female, who may be truly (or lied about her) in a privileged or powerful position, says she doesn’t want to eat at the hawker centre as it's dirty, and we went to a restaurant to dine.   

@@ -1,0 +1,1 @@
+# Implement feature: Right-click on the Mail app in macOS to access a pop-up menu that allows copying only the date, only the time, or both date and time. Simply right-click and choose the desired option. Reduces decision fatigue.   

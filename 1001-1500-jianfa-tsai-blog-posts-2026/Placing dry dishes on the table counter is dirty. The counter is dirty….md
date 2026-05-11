@@ -1,0 +1,1 @@
+# Placing dry dishes on the table counter is dirty. The counter is dirty. Plates stack to touch each other. Base of plate A touches the top of plate B. Use a plastic tray or cling wrap (to segregate the dining plate base from the counter, which is invisible to naked human eyes) to lay over the kitchen counter before placing plates, pasta bowls, or other items on top?  

@@ -1,0 +1,1 @@
+# Save the addresses of frequently visited locations in the iPhone's text replacement feature to quickly enter a specific address in the taxi app. e.g., typing “aauspost” on iPhone keyboard triggers the Australia Post street address: 123 Quentin Rd, Tree North, NSW 9999, Australia. This reduced errors, maximised global productivity and profits.   

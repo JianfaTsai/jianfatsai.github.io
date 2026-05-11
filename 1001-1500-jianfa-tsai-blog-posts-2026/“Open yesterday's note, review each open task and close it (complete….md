@@ -1,0 +1,1 @@
+“Open yesterday's note, review each open task and close it (complete, cancel, reschedule or cut & paste). Then, in today's note, block out some focus time for your most demanding tasks.” (Eduard (founder of NotePlan), 2026). Noteplan app   

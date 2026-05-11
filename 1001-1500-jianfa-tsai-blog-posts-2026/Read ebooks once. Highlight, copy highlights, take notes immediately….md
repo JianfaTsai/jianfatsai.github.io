@@ -1,0 +1,1 @@
+# Read ebooks once. Highlight, copy highlights, take notes immediately, search with AI, and share to blog posts and social media right away. Avoid rereading and sorting multiple times back and forth.    

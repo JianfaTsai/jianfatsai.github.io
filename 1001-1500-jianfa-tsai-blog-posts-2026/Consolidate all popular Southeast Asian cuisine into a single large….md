@@ -1,0 +1,1 @@
+# Consolidate all popular Southeast Asian cuisine into a single large restaurant and one kitchen to cut operating costs. After all, people can always order takeaway to eat in their cars. Include outdoor public benches, parks, and home delivery options. Why duplicate the costs of multiple expensive chefs, kitchens, and rental spaces?   

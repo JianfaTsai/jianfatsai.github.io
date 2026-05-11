@@ -1,0 +1,1 @@
+Create a video of a Chinese female housewife washing dishes at a sink; midway, she rotate the handle of the sink faucet the other direction, and red wine pours into her wine glass. Wine overflowed for 2 seconds. She drank the entire wine glass.   
