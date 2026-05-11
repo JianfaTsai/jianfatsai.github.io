@@ -1,0 +1,1 @@
+# Max profits for governments, corporations, universities, academics and Amazon by educating global citizens via social media that they can lower the brightness of text on the Kindle macOS app in dark mode to simulate the Apple Books macOS app, Quiet mode. This maximises readability and profits.

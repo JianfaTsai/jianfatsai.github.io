@@ -1,0 +1,1 @@
+Triangulation. B talk to A to ask A covey message to C when B is physically in front of C.

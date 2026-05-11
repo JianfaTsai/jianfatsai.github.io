@@ -1,0 +1,1 @@
+Save money by using ChatGPT to research the best app that fits your needs and also to choose the app that works across maximum number of platforms. E.g. app A works on iOS and iPadOS. App B works on iOS, iPadOS and macOS. Thus App B is preferable for purchase provided that App B also fits your needs. 

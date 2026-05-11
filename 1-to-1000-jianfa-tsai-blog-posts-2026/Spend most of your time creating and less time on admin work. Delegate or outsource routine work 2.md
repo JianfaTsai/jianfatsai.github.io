@@ -1,0 +1,1 @@
+# Spend most of your time creating and less time on admin work. Delegate or outsource routine work.

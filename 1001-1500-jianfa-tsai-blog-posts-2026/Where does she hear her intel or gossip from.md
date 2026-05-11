@@ -1,0 +1,1 @@
+Where does she hear her intel or gossip from?

@@ -1,0 +1,1 @@
+You can’t kill a conglomerate. When one director betrays the other, the senior management based on their love of money and power, kills the director and replace the deceased with another like-minded person. Similar to Captain America movie - Hydra. When you cut off one head, 7 more heads grew out of the decapitated neck. 

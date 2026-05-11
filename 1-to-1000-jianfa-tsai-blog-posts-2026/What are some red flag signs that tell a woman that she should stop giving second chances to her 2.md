@@ -1,0 +1,1 @@
+What are some red flag signs that tell a woman that she should stop giving second chances to her incorrigible partner and to cut ties or exit the environments that her partner frequent?

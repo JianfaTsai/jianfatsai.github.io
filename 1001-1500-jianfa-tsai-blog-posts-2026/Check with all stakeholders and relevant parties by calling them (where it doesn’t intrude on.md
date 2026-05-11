@@ -1,0 +1,1 @@
+Check with all stakeholders and relevant parties by calling them (where it doesn’t intrude on their productivity) to clarify on the details, possible consequences and repercussions before you reply to the email or to the other party. 

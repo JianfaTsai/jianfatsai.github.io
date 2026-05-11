@@ -1,0 +1,1 @@
+What are the red flag signs that a man seeks to gain a woman’s trust so he can get to her money by creating fake business investment scams or other fraudulent excuses?

@@ -1,0 +1,1 @@
+Max profits by selling kids pyjamas made with zippers for convenience and rapid removal of clothing to perform medical procedures in an emergency? What are the safety concerns for 6 year old child wearing zipper based clothing?

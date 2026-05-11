@@ -1,0 +1,1 @@
+I suppose in both communist nations e.g. China, Russia and capitalist countries e.g. USA require citizens, including underage children/babies to pay money for surgeries. If not, just die. Thus why do nations war with each other based on ideologies when most males share the love of money? https://youtube.com/shorts/IBn9DYlqmSM?si=pXnbmd_yDmIZ-i9z

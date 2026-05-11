@@ -1,0 +1,1 @@
+If you buy iPad Pro M5 with quality OLED screen to use for heavy visual tasks, e.g. movies, gaming, YouTube, comics or manga reading, then you can save some money for uni or school by buying MacBook Air M5 instead of MacBook Pro?

@@ -1,0 +1,1 @@
+Problem: Lack of money. Solution: Something physical that I would buy is a cash printer that is authorised by the Federal government. Unfortunately, it’s unavailable on the market for members of the public. 
