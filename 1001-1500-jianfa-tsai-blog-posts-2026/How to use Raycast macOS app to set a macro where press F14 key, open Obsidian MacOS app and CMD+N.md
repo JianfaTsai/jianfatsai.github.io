@@ -1,0 +1,1 @@
+How to use Raycast macOS app to set a macro where press F14 key, open Obsidian MacOS app and CMD+N to create new note?

@@ -1,0 +1,1 @@
+I am using filename heading sync plugin in Obsidian macOS app, how do I add the code %ICUDateTime%-yyyy-MM-dd-HH-mm-ss-z-% so the filename ends with the date or timestamp with timezone?
