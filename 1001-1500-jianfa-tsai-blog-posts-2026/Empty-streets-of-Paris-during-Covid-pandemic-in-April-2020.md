@@ -1,0 +1,2 @@
+# Empty streets of Paris during Covid pandemic in April 2020
+<iframe width="1920" height="1080" frameborder="0" loading="lazy" allow="autoplay; fullscreen; picture-in-picture; clipboard-write; web-share" allowfullscreen src="https://commons.wikimedia.org/wiki/File:Paris_Covid19_Avril_2020.webm?embedplayer=true" />
