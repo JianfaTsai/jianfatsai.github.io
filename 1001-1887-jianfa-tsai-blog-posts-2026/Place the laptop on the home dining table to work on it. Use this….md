@@ -1,0 +1,1 @@
+# Place the laptop on the home dining table to work on it. Use this as an opportunity to overhear loved ones' phone calls and organic conversations to mine problems as business opportunities to maximise profits.   

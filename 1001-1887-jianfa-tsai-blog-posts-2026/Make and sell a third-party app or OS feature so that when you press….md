@@ -1,0 +1,1 @@
+Make and sell a third-party app or OS feature so that when you press a keyboard shortcut and there are two or more apps using the same keyboard shortcut that result in an error, there will be a pop-up notification in the top right corner of macOS. The user can click on the notification window to view the names of apps that use the same keyboard shortcuts for troubleshooting.   

@@ -1,0 +1,1 @@
+# Criminals lure victims by lying about government incentives to persuade them to grant authority to cut the gas pipe of a house, causing financial damage. The ripple benefits for the criminals include profits from selling equipment, increasing the victim’s electricity bills, and selling solar panels.  

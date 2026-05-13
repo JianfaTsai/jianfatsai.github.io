@@ -1,0 +1,1 @@
+# Tuck the bedroom chair and office chair neatly and squarely under the desk to signal that you are done thinking for the day. This creates a boundary and allows for mental, emotional, and physical recovery for the rest of the night.   

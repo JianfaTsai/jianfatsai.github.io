@@ -1,0 +1,1 @@
+When you experience slow internet, it could be due to hacking, disruption or a bug. Counter slow internet by turning off WiFi on your iPhone and iPad, then send the document via email using your mobile data. Alternatively, you can connect your Mac mini desktop or MacBook laptop to your iPhone’s mobile network through the personal hotspot feature. 
