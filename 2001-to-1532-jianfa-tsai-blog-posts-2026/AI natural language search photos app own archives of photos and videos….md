@@ -1,0 +1,1 @@
+# AI natural language search photos app own archives of photos and videos and document and notes. Messages. Voice memo. Email. Show be all the data taken in city X. Show all the data I collected for my holiday in city or country Y.   

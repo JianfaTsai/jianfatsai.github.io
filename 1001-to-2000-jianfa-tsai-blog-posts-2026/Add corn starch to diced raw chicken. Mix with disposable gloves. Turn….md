@@ -1,0 +1,1 @@
+# Add corn starch to diced raw chicken. Mix with disposable gloves. Turn add oil to mix with disposable gloves. Then stir fry chicken to cooked. Scissor cut thickest in the middle to check if white. Ask ChatGPT on how long to cook. Then add LKY ready made sauce to chicken  

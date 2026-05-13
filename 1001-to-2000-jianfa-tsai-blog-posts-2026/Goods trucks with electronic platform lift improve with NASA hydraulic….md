@@ -1,0 +1,1 @@
+# Goods trucks with electronic platform lift improve with NASA hydraulic tech for council hard waste collection truck to reduce labour costs and workplace injuries. Lift up. Press second button to forward backward.   

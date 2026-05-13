@@ -1,0 +1,1 @@
+# Stay and pay rent to parents for 88 years. Buy other properties to lease out for rental income while staying with parents, so you can give the rental income to management so bosses can max their charity donations by verbally telling you that they did so. 

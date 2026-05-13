@@ -1,0 +1,1 @@
+The coffee tastes bad; that's why the supermarket is selling it at half price. It used to be a good brand, but there might be something wrong with the manufacturing process now. That's likely why it is being sold at half price.  

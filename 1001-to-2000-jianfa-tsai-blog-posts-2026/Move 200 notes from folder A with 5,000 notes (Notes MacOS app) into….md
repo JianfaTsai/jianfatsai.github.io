@@ -1,0 +1,1 @@
+# Move 200 notes from folder A with 5,000 notes (Notes MacOS app) into Folder B with zero notes so you can export the 200 notes to your computer without data loss. There is a limit to what your computer RAM or CPU can do, therefore, perform computer tasks or processes in small batches. Don’t export 5,000 notes in one go.   

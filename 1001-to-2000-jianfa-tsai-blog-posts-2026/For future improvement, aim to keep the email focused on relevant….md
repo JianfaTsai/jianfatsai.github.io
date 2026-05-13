@@ -1,0 +1,1 @@
+For future improvement, aim to keep the email focused on relevant professional information. Some details included (such as personal judgements about the patron’s circumstances) are not required and would not typically be included in workplace communication.   

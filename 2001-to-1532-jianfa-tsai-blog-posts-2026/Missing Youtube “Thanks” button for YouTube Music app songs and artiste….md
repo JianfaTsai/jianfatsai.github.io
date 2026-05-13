@@ -1,0 +1,1 @@
+# Missing Youtube “Thanks” button for YouTube Music app songs and artiste channel. Like buying e-gifts to support the musician whose song emotionally helped us through near suicidal times. This max billion dollar profit for Alphabet company and YouTube management.   

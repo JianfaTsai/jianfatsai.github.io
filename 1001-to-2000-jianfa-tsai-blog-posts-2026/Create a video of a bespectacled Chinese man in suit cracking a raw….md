@@ -1,0 +1,1 @@
+Create a video of a bespectacled Chinese man in suit cracking a raw egg shell open and the raw egg dropped on top of the Mac Mini M4 and the egg start to cook and turn white. The man used a dinner fork and dinner knife to slice the egg, lifted the egg and ate the egg.   

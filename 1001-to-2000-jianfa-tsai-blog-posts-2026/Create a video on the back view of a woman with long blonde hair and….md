@@ -1,0 +1,1 @@
+Create a video on the back view of a woman with long blonde hair and red dress, tall with a curvy figure and hip. A male voice called out “美女!”. Female turned around and her face is an African old man with long black beard, skull tattoo on cheek and bushy eyebrows. Scene switched to blonde hair Caucasian male who shows a look a of disgust.   

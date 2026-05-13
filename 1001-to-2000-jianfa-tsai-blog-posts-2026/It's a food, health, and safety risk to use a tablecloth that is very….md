@@ -1,0 +1,1 @@
+It's a food, health, and safety risk to use a tablecloth that is very wet to clamp on the pot lid, as when you squeeze the tablecloth, the dirty juice will drip into the food, causing food poisoning.   

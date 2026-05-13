@@ -1,0 +1,1 @@
+# USing other people equipment including your mother in law treadmill puts you at risks of eviction, because she blames you without evidence using her unscientific and uneducated mind when the treadmill is faulty.   

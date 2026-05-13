@@ -1,0 +1,1 @@
+Move the keyboard up by 20 cm under the monitor and move your book stand to the original position of the keyboard to read a book where the book is in front of the monitor. Take notes by typing on your iPad keyboard case on the left side of the book.   

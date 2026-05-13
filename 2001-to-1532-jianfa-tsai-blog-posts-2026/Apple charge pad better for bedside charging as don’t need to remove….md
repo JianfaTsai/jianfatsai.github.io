@@ -1,0 +1,1 @@
+# Apple charge pad better for bedside charging as don’t need to remove phone from charging stand or aim and find spot to plug phone back to charging stand. Pick up phone together with MagSafe attached charge pad to use at the same time. After using. Put both down at the same time.   

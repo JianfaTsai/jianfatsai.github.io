@@ -1,0 +1,1 @@
+# Trackpad is slightly slower in terms of scrolling, but it extends ones working lifespan and productivity by reducing the strain and injury risks involved in using single index finger to scroll web pages (hundreds of times daily).   

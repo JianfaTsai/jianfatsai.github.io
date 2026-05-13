@@ -1,0 +1,1 @@
+# AI can auto read vast amounts of data. Therefore can auto monitor pharmacy dispensed medication to cross reference with GP diagnosis entered into clinic computers to identify tampering against enemies or misdiagnosis  

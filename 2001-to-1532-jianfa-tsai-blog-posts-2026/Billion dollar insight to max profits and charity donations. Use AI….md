@@ -1,0 +1,1 @@
+# Billion dollar insight to max profits and charity donations. Use AI to help citations and provenance on original author or combo authors on combo genres for uploaded photo drawing hand drawn and video.   
