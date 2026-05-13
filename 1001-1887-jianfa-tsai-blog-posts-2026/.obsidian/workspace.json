@@ -20,8 +20,51 @@
               "icon": "lucide-file",
               "title": "THE-PROCESS-OF-RESOLVING-SOFTWARE-INSTABILITIES-AND-FILE-CORRUPTION-THROUGH-REINSTALLATION-AND-REINDEXING"
             }
+          },
+          {
+            "id": "1336ed70a6f7907e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "REAL-TIME-MULTIMODAL-AUTHENTICATION-AND-PROACTIVE-MISINFORMATION-FILTRATION.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "REAL-TIME-MULTIMODAL-AUTHENTICATION-AND-PROACTIVE-MISINFORMATION-FILTRATION"
+            }
+          },
+          {
+            "id": "0f620704ffc3dbc2",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "UNDERSTANDING-THE-CRAAP-TEST-FOR-INFORMATION-DISCERNMENT.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "UNDERSTANDING-THE-CRAAP-TEST-FOR-INFORMATION-DISCERNMENT"
+            }
+          },
+          {
+            "id": "072ce9540db06697",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "THE-PEDAGOGICAL-DICHOTOMY-BETWEEN-INSTRUCTIONAL-AIDS-AND-SCHOLARLY-EVIDENTIARY-STANDARDS.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "THE-PEDAGOGICAL-DICHOTOMY-BETWEEN-INSTRUCTIONAL-AIDS-AND-SCHOLARLY-EVIDENTIARY-STANDARDS"
+            }
           }
-        ]
+        ],
+        "currentTab": 3
       }
     ],
     "direction": "vertical"
@@ -180,11 +223,21 @@
       "bases:Create new base": false
     }
   },
-  "active": "f793d066d573fc9e",
+  "active": "072ce9540db06697",
   "lastOpenFiles": [
-    "Test 345.md",
+    "Steve-Job's-clever-response-to-\"How-do-you-learn-to-run-a-company?\".md",
+    "THE-PEDAGOGICAL-DICHOTOMY-BETWEEN-INSTRUCTIONAL-AIDS-AND-SCHOLARLY-EVIDENTIARY-STANDARDS.md",
+    "THE PSYCHOLOGY AND SOCIOLOGY OF CONSPICUOUS CONSUMPTION AND WEALTH SIGNALING.md",
+    "BOOK RECOMMENDATIONS FOR INTELLECTUAL AND PROFESSIONAL GROWTH.md",
+    "Steve Job's clever response to -How do you learn to run a company.md",
+    "Thawed Frozen Chicken Soup and Chicken Bits Refrigerator Shelf Life.md",
+    "UNDERSTANDING-THE-CRAAP-TEST-FOR-INFORMATION-DISCERNMENT.md",
+    "REAL-TIME-MULTIMODAL-AUTHENTICATION-AND-PROACTIVE-MISINFORMATION-FILTRATION.md",
+    "Untitled 1.md",
     "THE-PROCESS-OF-RESOLVING-SOFTWARE-INSTABILITIES-AND-FILE-CORRUPTION-THROUGH-REINSTALLATION-AND-REINDEXING.md",
-    "Untitled.md",
+    "Technically, it is possible for VIP supercomputer AI OS to pre-check the website that VIP visited (.md",
+    "Technically, it is possible for VIP supercomputer AI OS to append speech bubble next to each.md",
+    "Test 345.md",
     "Test-123.md",
     "If there is something wrong with the Ulysses app, template for creating new sheets or new note,.md"
   ]
