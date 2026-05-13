@@ -1,0 +1,3 @@
+# Manipulate to cause health problems by indirectly using the power holder to cook semi raw food to feed the victim. Raw noodles. Counter manipulation and save time. Evil manipulate you to jump hoops and ladders down rabbits holes to troubleshoot the semi raw noodles by boiling for one hour. Time is money. Discard the bad noodles. Cook pasta and instant noodles or rice porridge to pair with the previous noodle soup and meat.   
+  
+Manipulate by hacking security camera on 2 may 2026 to see that victim ate noodles for lunch to make mother in law cook noodles again for dinner. Bully by making the victim eat the same food for consecutive meals.   

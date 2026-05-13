@@ -1,0 +1,1 @@
+# Clear your browser cookies, create a new email address, or via your loved ones devices or reformat your device, to reaccess the retailer website to receive the pop up marketing campaign window where you provide your email address to get X% discounts.   

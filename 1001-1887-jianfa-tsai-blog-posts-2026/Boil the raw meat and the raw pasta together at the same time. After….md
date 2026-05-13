@@ -1,0 +1,1 @@
+Boil the raw meat and the raw pasta together at the same time. After everything is fully cooked, drain away most of the water, leaving some of the pasta water. Add the pasta sauce into the same pot and reduce the liquid until it's in a consistency that you like.   

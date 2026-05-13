@@ -1,0 +1,1 @@
+If the text box on the webpage doesn't allow you to text replacement, expand to your email address, Command-L to the web browser address bar to execute text replacement to insert the email address to copy.   

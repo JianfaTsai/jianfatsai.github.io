@@ -1,0 +1,1 @@
+# Thesis , share globally and via social media to educate people to set up AI custom instruction to output prompt as markdown file direct to download instead of displaying the result to save time, money and keep AI overhead costs down.   

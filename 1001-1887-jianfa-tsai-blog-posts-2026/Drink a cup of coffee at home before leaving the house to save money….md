@@ -1,0 +1,1 @@
+# Drink a cup of coffee at home before leaving the house to save money on buying coffee outside. PAck a 1.5L drink bottle to drink outdoors to save money on buying bottled water. Bring a snacks from home to outdoors.   

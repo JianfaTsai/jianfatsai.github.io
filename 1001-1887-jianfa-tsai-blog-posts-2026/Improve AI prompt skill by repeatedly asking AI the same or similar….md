@@ -1,0 +1,1 @@
+# Improve AI prompt skill by repeatedly asking AI the same or similar question under the same conversation thread to tell you information they didn’t tell you before based on its memory, within project folder for across all project folders and other spaces.   
