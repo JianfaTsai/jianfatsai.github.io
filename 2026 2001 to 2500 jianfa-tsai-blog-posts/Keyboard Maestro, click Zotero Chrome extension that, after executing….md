@@ -1,0 +1,1 @@
+# Keyboard Maestro, click Zotero Chrome extension that, after executing the extension, delays 1 second to open Zotero app and CMD+SHIFT+ C and CMD+SHIFT + A to copy both bibliography and citation to the Clipboard Manager app, where the user assigns a physical Apple Magic keyboard key to the Clipboard Manager app to paste the last two clipboard items into the thesis document.   

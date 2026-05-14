@@ -1,0 +1,1 @@
+Buy a dedicated good-quality iron to dedicate the iron solely for ironing white clothing or white office shirts only. This prevents browning marks on the iron that was used for coloured clothing that transfer the brown marks onto the white, expensive office shirt. When you need to wear an office shirt for emergency purposes, like meeting a client or the boss.   

@@ -1,0 +1,1 @@
+# Use sharpie to fake sign on trading card to impersonate celebrity signature. make and sell robot that based on scanned real celebrity signature to robot hand hold a physical  sharpie to fake sign on trading card to increase value to sell for profits.   

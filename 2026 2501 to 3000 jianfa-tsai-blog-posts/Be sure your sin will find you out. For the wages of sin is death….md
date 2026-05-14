@@ -1,0 +1,2 @@
+# Be sure your sin will find you out. For the wages of sin is death, but the gift of God is eternal life through Jesus Christ our Lord. Romans 6:23   
+South Oakleigh Gospel Hall   

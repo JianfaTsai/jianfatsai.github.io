@@ -1,0 +1,1 @@
+# Room 560 slanted bathroom tap need straighten to 90 degrees perpendicular to sink basin. Add to audit checklist for global building new hotels or renovating, before accept handover from construction.   

@@ -1,0 +1,1 @@
+# Indirect cyber bully when victim open multiple tabs in browser background to crash SAfari app to make victim lose progress and cause stress anxiety, trauma and doubts that there’s errors in victim work  

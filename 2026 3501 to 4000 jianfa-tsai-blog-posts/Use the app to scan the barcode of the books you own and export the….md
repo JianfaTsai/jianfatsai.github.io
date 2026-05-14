@@ -1,0 +1,1 @@
+Use the app to scan the barcode of the books you own and export the list of scanned barcodes to create a book list so you know what you've read and upload it to AI so it remembers. Ask AI whether you own this book or not or whether you read it before. That way, you prevent duplicate purchases.   

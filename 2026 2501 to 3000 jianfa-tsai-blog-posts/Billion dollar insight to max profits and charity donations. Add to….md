@@ -1,0 +1,1 @@
+# Billion dollar insight to max profits and charity donations. Add to header of website homepage to communicate if the website is active and how often the website is updated.  “This blog updates weekly.”  

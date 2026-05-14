@@ -1,0 +1,1 @@
+# Ikea black and white gaming table hole to store powerboard below, water spill cup bottle topple water flow into power board through hole short  circuit electrocute dead. Cheap solution put powerboard on table top. redesign future table, feedback ikea, no hole below or other solution to prevent electrocution risks. Hole space to store other non electronics. Eg books or   

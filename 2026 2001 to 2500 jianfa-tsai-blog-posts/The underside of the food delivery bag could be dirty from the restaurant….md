@@ -1,0 +1,1 @@
+The underside of the food delivery bag could be dirty from the restaurant and the driver's car. Then put it on the dining table, put it on the kitchen counter, and wipe the kitchen counter after eating.   

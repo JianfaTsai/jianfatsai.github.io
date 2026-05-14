@@ -1,0 +1,1 @@
+repeat keywords with visual image of each keywords to mentally remember idea strike during shower. bring watch and phone to shower. set reminder shower daily at fixed time. in remidner say “Shower. Bring phone and watch to bathroom”   

@@ -1,0 +1,1 @@
+# use hyphen symbol key to delineate between categories of concepts or sentences in a paragraph for AI prompting which is faster than using the colon key as you eliminate the time wastes, movmeent wastes and steps involved in pressing the SHIFT key to create the collon key, same principle in myirad of other global use cases,   

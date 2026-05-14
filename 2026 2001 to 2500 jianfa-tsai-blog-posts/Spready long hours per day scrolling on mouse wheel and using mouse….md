@@ -1,0 +1,1 @@
+# Spready long hours per day scrolling on mouse wheel and using mouse function load by moving part of day’s work load to additional second trackpad on left side of keyboard reduce RSI risks and injuries   

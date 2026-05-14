@@ -1,0 +1,1 @@
+# forgot to turn off heater then go airport to holiday. Business opportunity to make and sell smart heater. Press a button to turn on 24 hour safety switch.  When heater is continuously turn on for 24 hiurs. It auto switched off and the 24 hours safety switch auto physical jump back to off position. Peace of mind for holiday. No hefty electrical bills. Fire hazard  

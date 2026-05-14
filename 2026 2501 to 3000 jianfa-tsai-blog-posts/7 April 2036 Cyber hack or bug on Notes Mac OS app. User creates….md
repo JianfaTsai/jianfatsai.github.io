@@ -1,0 +1,1 @@
+7 April 2036: Cyber hack or bug on Notes Mac OS app. User creates a new note in a different folder to make the new note disappear, causing supposed hidden data loss, as the new note is in a folder or archive folder such as "su issues". Solve this by using the Alternate Notes app to take new notes only.   

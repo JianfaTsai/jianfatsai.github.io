@@ -1,0 +1,1 @@
+# bath mat soaking wet due to indirect secret bullying by household member to cause inconvenience to victim to wash - 17 Apr 2026 or criminal enter home to shower at night - install CCTV outside bathroom. wall may have electrical wiring in side. always keep construction blue print, physical and online. place battery CCTV camera on floor 3M velcro   

@@ -1,0 +1,1 @@
+# Jianfa Tsai remembered about the news article in Singapore that he read about on PM Lee Kuan Yew posed with his wife for a photo at boat quay where he intentioanlly asked for a piece of rubbish on the floor not to be removed to use the photo to communicate on the importance of Singapore clean and litter free.   

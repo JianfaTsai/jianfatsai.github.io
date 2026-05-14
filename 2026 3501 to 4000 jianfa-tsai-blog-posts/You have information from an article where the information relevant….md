@@ -1,0 +1,1 @@
+You have information from an article where the information relevant to answering your question one and question two have sections A, B, and C. If section B answers 100 of question two and sections A and C 100% don't answer question two, thus by process of elimination, sections A and C are likely to be the information source used to answer question one.   

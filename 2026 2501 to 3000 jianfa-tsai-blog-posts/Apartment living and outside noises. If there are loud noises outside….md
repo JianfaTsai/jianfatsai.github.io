@@ -1,0 +1,1 @@
+# Apartment living and outside noises. If there are loud noises outside the apartment at 8 pm daily. The key to max profits and productivity, is to go to bed early when the noise starts, and wake up in the early morning, as its quiet   

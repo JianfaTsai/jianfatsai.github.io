@@ -1,0 +1,1 @@
+# Lack of transferability between Notes app and Apple Journal app. Unable to import markdown into Journal app. Easiest way is to journal in Notes app and move journal entries into Notes app folder titled (first name-journal)  

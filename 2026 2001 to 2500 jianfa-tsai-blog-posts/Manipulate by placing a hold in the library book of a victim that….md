@@ -1,0 +1,1 @@
+Manipulate by placing a hold in the library book of a victim that is timed at the time when he is rushing for a deadline and before his overseas holiday, to waste his time and make him stressed even more.   

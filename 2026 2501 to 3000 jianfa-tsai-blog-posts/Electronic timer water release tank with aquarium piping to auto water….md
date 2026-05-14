@@ -1,0 +1,1 @@
+# Electronic timer water release tank with aquarium piping to auto water group of indoor plants moved next to each other in one spot with grow lights to save on plant hotel costs? Need buy high quality lights and water system to reduce fire hazard. Tank need auto shut off when no water. Weight sensor at base.   

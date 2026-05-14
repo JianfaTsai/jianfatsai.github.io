@@ -1,0 +1,2 @@
+   
+The accessibility button/feature will markedly improve user experience, increase patronage, and allow library management to hire casual or part-time staff with mild vision impairments to manage the OPAC or backend facing interfaces. Hiring disabled temporary staff frees up library budgets over the foreseeable future, where the labour cost savings can be redirected to higher value adding activities to net greater returns for various stakeholders.  

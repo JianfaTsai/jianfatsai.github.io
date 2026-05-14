@@ -1,0 +1,1 @@
+# Swipe up iPad bottom right corner screen quick notes. Write multiple ideas in same note, don’t create one idea with new note as it introduce more steps, complexity, waste time and lead to loss of thoughts   

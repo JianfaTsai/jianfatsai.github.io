@@ -1,0 +1,1 @@
+Productivity hack: Close and rest your eyes for your pee and poop. You can rest your eyes from viewing the screens and blue light for hours daily. This will extend the lifespan of the eyeballs, productivity, and reduce errors.   

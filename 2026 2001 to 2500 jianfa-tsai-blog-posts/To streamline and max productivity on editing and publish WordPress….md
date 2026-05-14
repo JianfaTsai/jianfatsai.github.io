@@ -1,0 +1,1 @@
+# To streamline and max productivity on editing and publish WordPress blog post, Use safari app for Wordpress Editor and Chrome iPadOS app for blog website in incognito mode to rapidly switch between browser apps and CMD+R to referesh blog website to view updates.  

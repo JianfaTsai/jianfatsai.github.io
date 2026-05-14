@@ -1,0 +1,1 @@
+# Use two different google accounts to access two different Gemini AI pro to eliminate the wait times for running prompts. Open Gemini AI account A on split window one and Gemini AI account B on split window B on ultrawide 49 inch computer monitor and alternate to run prmpts and read between the two. Max productivity.   

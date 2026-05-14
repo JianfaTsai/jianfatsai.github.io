@@ -1,0 +1,1 @@
+If I'm unsure if the SteelSeries gaming headphone works on macOS, I can, before buying the headphones, go to the SteelSeries website to download the driver and see whether the driver works on macOS before deciding whether to buy or not.   

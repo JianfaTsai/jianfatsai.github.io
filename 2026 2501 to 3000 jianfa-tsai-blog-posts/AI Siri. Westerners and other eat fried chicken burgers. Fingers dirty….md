@@ -1,0 +1,1 @@
+# AI Siri. Westerners and other eat fried chicken burgers. Fingers dirty.  Cannot tap on touch screen to switch to next tv episode or skip end credits. Voice command. Siri, next episode. Max Apple TV profits. I’m   

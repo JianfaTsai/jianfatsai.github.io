@@ -1,0 +1,1 @@
+As you do your assignment, collect all your information or data sources into a single document or canvas in plain text format before you start organising it into the right categories to answer the question. After you organise for each question, you can paraphrase, format, rearrange again, and also add the referencing.   

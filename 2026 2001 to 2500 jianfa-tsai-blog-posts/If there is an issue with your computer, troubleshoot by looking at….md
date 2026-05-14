@@ -1,0 +1,1 @@
+If there is an issue with your computer, troubleshoot by looking at the most recently installed apps and try quitting or uninstalling the recently installed apps to see if the problem stops for a computer.   

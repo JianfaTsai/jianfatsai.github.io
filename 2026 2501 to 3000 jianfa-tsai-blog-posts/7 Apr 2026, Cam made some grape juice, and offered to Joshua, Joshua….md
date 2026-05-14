@@ -1,0 +1,1 @@
+# On 7 April 2026, X made some grape juice and offered it to Y. Y said he had some juice, but X didn’t pour any for Y to drink and instead offered it to Z. Could this be manipulation, where Y pretends to have drunk some in order to indirectly influence Z into thinking it is safe to drink the semi-spoilt grape juice?   

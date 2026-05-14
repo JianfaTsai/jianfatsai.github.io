@@ -1,0 +1,1 @@
+Power off all home power outlets, unplug all power adapters and power boards from wall outlets, check all the taps are turned off, check all windows and doors and shutters are closed and lock, do this 1 hour before leaving for airport. Use laptop or tablet after power off.   

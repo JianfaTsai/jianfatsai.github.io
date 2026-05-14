@@ -1,0 +1,1 @@
+Pack your charging adapters and cables for your phones and devices in your carry on luggage or backpack instead of storing in your check in luggage to prevent fire hazard as well as reducing safety risks if the check in luggage gets lost or stolen (no charging cable or adapter to charge your phone)  

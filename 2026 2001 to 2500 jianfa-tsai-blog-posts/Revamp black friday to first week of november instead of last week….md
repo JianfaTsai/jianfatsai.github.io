@@ -1,0 +1,1 @@
+# Revamp black friday to first week of november instead of last week of november because people pay day on the first week, or revamp most employers to give salaries on the last friday of the month.   

@@ -1,0 +1,1 @@
+# Jianfa Tsai used to wear Singapore army green socks as part of casual Friday office wear when he was an intern at Singapore. A female colleague laughed at his socks. Perhaps it was something else.   

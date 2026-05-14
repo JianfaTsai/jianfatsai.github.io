@@ -1,0 +1,1 @@
+# AFter the AI have generated the response, dont read in detail copy the AI response into note taking app togeterh wtih grammarly to read and edit using Grammarly prompt as you go along. this reduce steps, prevent double or triple reading (checking) and saves significant time   

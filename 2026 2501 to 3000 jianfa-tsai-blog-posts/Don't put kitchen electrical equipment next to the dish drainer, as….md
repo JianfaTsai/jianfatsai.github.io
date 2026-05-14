@@ -1,0 +1,1 @@
+Don't put kitchen electrical equipment next to the dish drainer, as water might spill and get into electrical items and cause electrocution. Install a plastic divider bookend in between the dish drying rack and also the electrical items.   

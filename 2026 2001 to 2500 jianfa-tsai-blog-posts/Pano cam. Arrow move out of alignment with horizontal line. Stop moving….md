@@ -1,0 +1,4 @@
+# Pano cam. Arrow move out of alignment with horizontal line. Stop moving. Move fingers to adjust phone arrow to align line. Then move feet slowly again. Keep to educate stop. Align. Then move. Same principle for life. Problem in life. Stop what you are doing when faced with big problem. Research solutions plan adjust behaviour then continue moving. Set recurring quarterly reminder to review life.   
+# Pano cam. Arrow move out of alignment with horizontal line. Stop moving. Move fingers to adjust phone arrow to align line. Then move feet slowly again. Keep to educate stop. Align. Then move. Same principle for life. Problem in life. Stop what you are doing when faced with big problem. Research solutions plan adjust behaviour then continue moving. Set recurring quarterly reminder to review life.   
+  
+#reviewed  

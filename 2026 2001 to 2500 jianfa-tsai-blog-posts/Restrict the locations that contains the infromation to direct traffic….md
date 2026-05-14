@@ -1,0 +1,4 @@
+# Restrict the locations that contains the infromation to direct traffic to the sources or platform you control so you will be able to run in depth AI analytics to identify metadata and personal information of your audiences. E.g. instead of wasting or spreading your time, energey and IP on various social media platforms, brain dump all your insights into Ulysses notetaking app to publish onto your blog on Wordpress so you can run AI analytics. Time is limited for everyone.   
+# Restrict the locations that contains the infromation to direct traffic to the sources or platform you control so you will be able to run in depth AI analytics to identify metadata and personal information of your audiences. E.g. instead of wasting or spreading your time, energey and IP on various social media platforms, brain dump all your insights into Ulysses notetaking app to publish onto your blog on Wordpress so you can run AI analytics. Time is limited for everyone.   
+  
+#reviewed  

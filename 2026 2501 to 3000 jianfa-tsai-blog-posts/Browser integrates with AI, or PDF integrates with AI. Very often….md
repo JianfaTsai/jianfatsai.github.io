@@ -1,0 +1,1 @@
+Browser integrates with AI, or PDF integrates with AI. Very often, a document page number is not in sync with the PDF page placing preview on the browser app or PDF app. Thus, you can ask AI to jump to the relevant page number correctly without using the preview, small screen issues, and deny accessibility to those who have vision impairment.   

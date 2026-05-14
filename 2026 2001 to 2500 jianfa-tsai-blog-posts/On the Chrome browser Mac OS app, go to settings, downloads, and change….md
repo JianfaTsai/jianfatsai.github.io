@@ -1,0 +1,1 @@
+On the Chrome browser Mac OS app, go to settings, downloads, and change the download folder for the Chrome browser to iCloud Drive. Create a folder called Google Chrome downloads folder. This way, all your downloads are saved to the cloud to prevent data loss.   

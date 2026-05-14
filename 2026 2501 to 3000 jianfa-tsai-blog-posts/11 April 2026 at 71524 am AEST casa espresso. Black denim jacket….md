@@ -1,0 +1,1 @@
+11 April 2026 at 7:15:24 am AEST Cafe X. Black denim jacket cashier two finger clamp clip insides of empty  cups. Need marker label each drink L + 1 could be cafe latte or chai latte. L latte for both thus confusion.  Can smell for coffee  

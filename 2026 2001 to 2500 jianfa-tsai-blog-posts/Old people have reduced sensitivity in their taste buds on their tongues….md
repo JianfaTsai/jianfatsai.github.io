@@ -1,0 +1,1 @@
+Old people have reduced sensitivity in their taste buds on their tongues. That's why they cannot taste whether a food is spoilt or slightly spoilt or off. That causes arguments between the old people and their loved ones when the food cooked by old people tastes spoilt to the loved ones and old people think it's fine.   

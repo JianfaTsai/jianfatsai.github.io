@@ -1,0 +1,1 @@
+# Indirect bully on notes app by making victim scroll up and down in a folder Y many times, counter bullying by tap on left menu to a different folder name X to switch back to original folder name Y, auto jump to first note.   

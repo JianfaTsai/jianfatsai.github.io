@@ -1,0 +1,1 @@
+# Give child small allowance linked to studies and household chores and behaviour. Make AI app.  Report. This teach child development. And behaviour correction as well how to be frugal and entrepreneurial with limited financial resources   

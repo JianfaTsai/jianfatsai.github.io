@@ -1,0 +1,1 @@
+It is better to buy the PDF version or Kindle version of law textbooks, as you can use the search function to jump between different section divisions and clauses quickly, as well as keyword searches.   

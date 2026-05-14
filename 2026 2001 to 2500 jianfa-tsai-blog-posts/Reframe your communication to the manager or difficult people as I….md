@@ -1,0 +1,1 @@
+Reframe your communication to the manager or difficult people as "I have this problem. What do you think I should do?" Instead of providing a statement, I need you to do this to the power holder, just issue will cause negative emotions in them and cause retaliation or aggression. Just ask them, "I have this problem. What should I do?"   

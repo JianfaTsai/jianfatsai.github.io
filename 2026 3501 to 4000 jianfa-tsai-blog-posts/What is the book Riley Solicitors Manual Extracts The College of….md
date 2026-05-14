@@ -1,0 +1,1 @@
+What is the book "Riley Solicitors Manual Extracts The College of Law LexisNexis 2014" about, what can I learn? Is it suitable for me? What's the price of the book? Is there an ebook that I can read or buy from? Is it available for loan from academic or public libraries or databases in Australia?  

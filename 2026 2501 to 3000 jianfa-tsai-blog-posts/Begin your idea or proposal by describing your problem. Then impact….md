@@ -1,0 +1,1 @@
+# Begin your idea or proposal by describing your problem. Then impact or who gets affected, then damages financial or legal costs, who benefits from solution. then solution, then resources needed to implement solution,  

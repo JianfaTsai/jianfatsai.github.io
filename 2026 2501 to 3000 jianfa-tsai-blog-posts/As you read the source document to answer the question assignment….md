@@ -1,0 +1,1 @@
+As you read the source document to answer the question assignment, use different highlighting colors for different questions so you quickly identify each section of the article to use to answer the question.   

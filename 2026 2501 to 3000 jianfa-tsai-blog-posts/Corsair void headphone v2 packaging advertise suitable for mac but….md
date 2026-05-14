@@ -1,0 +1,1 @@
+# Corsair void headphone v2 packaging advertise suitable for mac but Steelseries double priced didn’t adveritse mac compatibility on box. Billion dollar insight to max profits and charity donations.   

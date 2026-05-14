@@ -1,0 +1,1 @@
+Doing assignment. After completing a question, read up to double-check the content is correct. Learn to check for grammar or typos after answering all the questions in the assignment. Then do a grammar and typo check and formatting check at the end.   

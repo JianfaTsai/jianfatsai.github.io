@@ -1,0 +1,1 @@
+# Hang sleep jumper on hanger to wear for entire trip holiday reduce double load, instead pack 5 top for sleeping, pack 2 and wear those only for sleeping. No need to wash daily. Pack 1 warm and 1 t shirt for sleeping   
