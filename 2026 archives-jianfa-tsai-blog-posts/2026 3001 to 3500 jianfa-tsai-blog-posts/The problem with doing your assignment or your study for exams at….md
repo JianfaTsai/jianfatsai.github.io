@@ -1,0 +1,1 @@
+The problem with doing your assignment or your study for exams at the last minute is that sometimes there will be quarrels or problems with the relationship with your loved ones, boyfriend, girlfriends, or spouses. Then it will destroy your mood to study and create interrupting, distracting thoughts that cause you to be unable to focus.   

@@ -1,0 +1,1 @@
+The problem with living with divorced people is that their negativity and trauma are vented on you. That influences how other people that live with the divorced person and you treat you poorly. That impacts the upbringing of the children, where children treat you poorly as well.   

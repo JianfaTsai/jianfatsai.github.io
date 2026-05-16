@@ -1,0 +1,1 @@
+Mother in-law logic: if the brand new outdoor hot water tank has rust, then wouldn't the underground piping that lasts for decades or centuries have even more rust? It doesn't matter whether you use cold or hot water to refill the kettle in the morning.   

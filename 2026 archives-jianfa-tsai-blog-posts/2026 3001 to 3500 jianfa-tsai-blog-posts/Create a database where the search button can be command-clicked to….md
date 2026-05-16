@@ -1,0 +1,1 @@
+Create a database where the search button can be command-clicked to open as a new browser tab for the search results. So that, for research, just open every single link as a new tab for traceability, troubleshooting, and productivity.   

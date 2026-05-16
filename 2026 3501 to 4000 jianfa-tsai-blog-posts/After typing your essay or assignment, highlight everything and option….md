@@ -1,0 +1,1 @@
+After typing your essay or assignment, highlight everything and option A to get the speechify app to read aloud so you can double check for typos, grammars, and other contextual errors. Also, turn on the Word document grammar checker to identify grammar and typos.   

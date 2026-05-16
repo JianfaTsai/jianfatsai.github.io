@@ -1,0 +1,1 @@
+Improve Grok AI where the user can copy images and text from notes Apple app into the prompt text box of Grok AI on Mac OS. The Grok AI will auto convert each image and video file in the text box into attachments to be used in the analysis.   

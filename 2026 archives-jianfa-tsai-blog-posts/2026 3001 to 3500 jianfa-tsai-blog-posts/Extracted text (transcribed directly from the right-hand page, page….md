@@ -1,0 +1,3 @@
+**Extracted text (transcribed directly from the right-hand page, page 7, in the first image):** “Scientists gather facts. Scientific facts are called data. Scientists write about what they learn. They share what they learn. They use the data to solve problems. Sometimes, what they learn makes them ask more questions.” (Musgrave, 2025, p. 7)  
+**In-text parenthetical citation example (APA 7):** (Musgrave, 2025, p. 7)  
+**Full APA 7 reference list entry (created using the book identification, title, publisher/series branding, and ISBN details visible on the second and third images, confirmed via standard bibliographic data for this exact edition):** Musgrave, R. A. (2025). *DK super readers level 1: A day in the life of a scientist*. DK Publishing.  

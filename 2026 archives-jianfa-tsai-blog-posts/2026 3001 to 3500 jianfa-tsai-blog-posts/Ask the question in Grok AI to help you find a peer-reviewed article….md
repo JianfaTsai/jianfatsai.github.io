@@ -1,0 +1,1 @@
+Ask the question in Grok AI to help you find a peer-reviewed article and database. Use the article title and author name from the Grok response to paste into your university library catalog OPAC to search through and gain access to paywall research databases.   

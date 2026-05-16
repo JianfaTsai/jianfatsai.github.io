@@ -1,0 +1,1 @@
+Reframe the use of a traditional, old-school stylus with a rubber tip to be used to physically hold the stylus to physically touch the computer monitor. You can quickly run your stylus down the computer monitor screen, line by line, and compare between two windows or two documents.   

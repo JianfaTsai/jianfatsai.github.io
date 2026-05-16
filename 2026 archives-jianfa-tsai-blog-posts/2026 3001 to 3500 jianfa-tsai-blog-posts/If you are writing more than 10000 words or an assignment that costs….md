@@ -1,0 +1,1 @@
+If you are writing more than 10000 words or an assignment that costs you more than one day, periodically copy and paste the assignment as backup into an external hard disc drive and disconnect the hard disc drive or SSD drive from the computer to prevent hacking or tampering   

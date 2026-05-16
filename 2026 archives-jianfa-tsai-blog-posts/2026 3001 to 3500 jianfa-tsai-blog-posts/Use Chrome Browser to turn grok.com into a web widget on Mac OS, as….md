@@ -1,0 +1,1 @@
+Use Chrome Browser to turn grok.com into a web widget on Mac OS, as it is better than using Safari Browser to turn it into a web widget on the dock. You can get more extensions to empower your grog AI, which is useful for future development and profits.   

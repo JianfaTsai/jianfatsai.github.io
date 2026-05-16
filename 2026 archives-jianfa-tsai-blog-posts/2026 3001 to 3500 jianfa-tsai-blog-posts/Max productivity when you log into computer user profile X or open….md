@@ -1,0 +1,1 @@
+Max productivity when you log into computer user profile X or open app Y, and the app Y is not quit. The Mac Focus mode will auto turn on when you log out of user profile or quit app Y; then the Focus mode will auto turn off.   

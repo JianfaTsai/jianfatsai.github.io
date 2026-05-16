@@ -1,0 +1,1 @@
+The $57 to buy MagSafe 3 in 1 phone, watch AirPods Philips Charger for holiday stay for your devices as hotel room don’t have enough charging ports. It’s more convenient and less stress than trying to fix the problem which may arise when we are there. It’s cheaper than buying solutions then.   

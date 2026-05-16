@@ -1,0 +1,1 @@
+Two Mac Minis connected to a single 49-inch ultra-wide monitor. Install the same monitor brand software or apps on both Mac Minis to talk to each other. That way, you can resize the monitor according to the windows layout that you want for each Mac Mini.   

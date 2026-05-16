@@ -1,0 +1,1 @@
+Mac OS CleanShot X app: After taking a screenshot to the clipboard using the F19 key, there's a pop-up window on the bottom left corner. Use your mouse pointer to click and drag the pop-up window of the screenshot to your note-taking app to rapidly paste it into your note-taking app.   

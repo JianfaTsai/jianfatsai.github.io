@@ -1,0 +1,1 @@
+Why not add two monitors to the top-left and top-right empty corners, for a total of six screens? [https://youtube.com/shorts/IuMjZhLYi78?si=gWVedd786kUjKQR_](https://youtube.com/shorts/IuMjZhLYi78?si=gWVedd786kUjKQR_)   

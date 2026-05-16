@@ -1,0 +1,1 @@
+When watching a recorded school webinar, if you get distracted by your thoughts, pause the webinar and press the left arrow key to rewind the webinar until your last good memory of the webinar to rewatch it  

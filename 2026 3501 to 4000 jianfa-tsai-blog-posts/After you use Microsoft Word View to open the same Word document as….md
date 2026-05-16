@@ -1,0 +1,1 @@
+After you use Microsoft Word View to open the same Word document as two instances or two windows that supposedly are synced, scroll to the same spot of the document on two of the windows and type a single alphabet A to make sure the sync is happening before we start any work. Then delete the word you just typed.   

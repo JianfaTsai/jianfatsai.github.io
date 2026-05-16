@@ -1,0 +1,1 @@
+Use your university email address to sign up for a Grammarly yearly subscription, then change to your personal Apple or Google email address so you don't lose access to your Grammarly subscription should you stop studying at university or at school.   

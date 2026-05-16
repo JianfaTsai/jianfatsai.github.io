@@ -1,0 +1,1 @@
+After you complete the assignment, fix grammar typos and chat with Grammarly, etc. Save it and put it away, and then the next day think like a marker and look through your content to check for errors and think of how you graded it if you are the tutor.   

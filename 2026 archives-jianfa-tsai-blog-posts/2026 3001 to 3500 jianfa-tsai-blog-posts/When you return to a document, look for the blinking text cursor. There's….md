@@ -1,0 +1,1 @@
+When you return to a document, look for the blinking text cursor. There's a specific spot in the document where it last left off. Read the text surrounding the blinking text cursor to double-check your errors and where it last left off.   

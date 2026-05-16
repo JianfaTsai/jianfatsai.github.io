@@ -1,0 +1,1 @@
+Discuss one-on-one in private, outside, inside a car, with the most powerful boss of your company or your household to get permission verbally as well as written permission before you do anything. This is so that the other people that complain will submit to the authority of the most powerful boss; then they cannot say anything else.   

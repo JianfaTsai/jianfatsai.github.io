@@ -1,0 +1,1 @@
+On a large TV monitor (maybe 60 in) or maybe a 34 in computer monitor, turn on the Kindle macOS app to the smallest text font size so it can highlight all the text. Use the Speechify app to read the text aloud by voice and can read the captions provided by the Speechify app for deeper comprehension.   

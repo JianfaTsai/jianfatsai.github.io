@@ -1,0 +1,1 @@
+# Don’t set up or install email accounts on macOS , install email accounts on iPad with magic keyboard iPad case, put iPad face you below computer monitor so you can see email notifications, and type on keyboard to response. iPad sandbox better than macOS   

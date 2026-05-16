@@ -1,0 +1,1 @@
+# Two 34 inch ultra wide monitor, right monitor half protrude out of gaming wide desk to make space to put iPad Pro on the left side (so don’t block left monitor) can also put physical book on height adjustable stand above iPad Pro.   

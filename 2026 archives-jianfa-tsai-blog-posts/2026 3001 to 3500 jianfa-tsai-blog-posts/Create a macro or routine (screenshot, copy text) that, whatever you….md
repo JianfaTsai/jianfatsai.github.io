@@ -1,0 +1,1 @@
+Create a macro or routine (screenshot, copy text) that, whatever you do, always auto gets the referencing in APA 7 (or referencing format that you prefer, if feasible). paste both screenshot and referencing at the same time. Paste both text and referencing at the same time.   

@@ -1,0 +1,1 @@
+Ask AI to access multiple files in Google Drive to create a mind map so you can import the mind map file into the MindNode Mac OS app to refine, edit, and add your own text boxes and images. alternatively ask Grok AI to create a file that can import into FreeFrom app or similar to Freeform app thrid party app for apple pencil aid and unlimited canvas  

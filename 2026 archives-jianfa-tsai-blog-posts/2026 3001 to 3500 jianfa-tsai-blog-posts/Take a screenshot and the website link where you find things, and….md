@@ -1,0 +1,1 @@
+Take a screenshot and the website link where you find things, and save it in this app. Make yourself an app where, when you paste a screenshot, you auto also paste the website link or document name or file name or app name at the bottom of the screenshot in the same notes app.   

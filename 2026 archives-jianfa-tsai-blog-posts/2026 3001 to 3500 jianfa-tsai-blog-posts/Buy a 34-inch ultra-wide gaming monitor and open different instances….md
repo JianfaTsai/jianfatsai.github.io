@@ -1,0 +1,1 @@
+Buy a 34-inch ultra-wide gaming monitor and open different instances of the same document. Instance one of the document is for your sequential top-down progress. Instance two of the document on the right-hand side, on the other monitor, is for when we suddenly have a thought that needs to fix a previous error and then jump to another spot.   

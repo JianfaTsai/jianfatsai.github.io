@@ -1,0 +1,1 @@
+Husbands divorce their wives because their wives use the husband as a dummy to vent their frustration. Most of the time, the wives don't say anything nice or give any compliments to the husband at all.   

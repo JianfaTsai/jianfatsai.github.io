@@ -1,0 +1,1 @@
+# Max profits. Buy jeans to tailor made the waist to save time wear and take off belt. Belt less jeans and pants. Time is money. 3 mins daily saved. Plus eliminating cognitive stress and search and find time of 5 mins daily over lifetime of 60  years is $x excluding reinvestment of seed capital created from savings.   

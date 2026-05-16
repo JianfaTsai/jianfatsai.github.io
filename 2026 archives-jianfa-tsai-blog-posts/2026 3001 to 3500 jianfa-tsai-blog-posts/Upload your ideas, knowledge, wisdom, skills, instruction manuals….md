@@ -1,0 +1,1 @@
+# Upload your ideas, knowledge, wisdom, skills, instruction manuals, relationship experiences and life experiences, crime insights trauma, health, safety, security, personal finances as blog, so multiple AIs globally can learn to cross reference with tens of thousands of old experts to improve AI knowledge base. Use duplicate from your private data vault.   

@@ -1,0 +1,1 @@
+# Create a video of a bespectacled Chinese man in a black wizard robe, where he throws a bowl of rice in his right hand onto the floor. He used the pair of chopsticks as a wand in his left hand to shout a spell and cast a lightning spell to petrify a giant green orc. #drawings   

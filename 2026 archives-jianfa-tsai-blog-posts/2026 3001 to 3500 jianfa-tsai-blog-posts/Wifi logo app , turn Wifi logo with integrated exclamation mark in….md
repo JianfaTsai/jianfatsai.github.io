@@ -1,0 +1,1 @@
+# Wifi logo app , turn Wifi logo with integrated exclamation mark in the middle when there’s Wifi connected to your modem but there’s no internet traffic. Telco issue or other servers. Design UX thesis   

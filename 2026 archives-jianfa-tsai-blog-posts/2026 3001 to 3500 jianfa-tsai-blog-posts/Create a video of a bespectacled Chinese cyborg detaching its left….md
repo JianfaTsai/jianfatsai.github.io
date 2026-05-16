@@ -1,0 +1,1 @@
+Create a video of a bespectacled Chinese cyborg detaching its left metal arm from its shoulder. The right hand holds onto the shoulder part of the left arm and uses the left arm as a fishing rod. The cyborg swings the left arm forward, and a fishing line extends forward from the index finger into space to hook onto a planet. The cyborg reels the planet into his right hand.  

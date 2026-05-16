@@ -1,0 +1,1 @@
+This is an investigation into how the third-order or second-order communication circles from social media, lifetime experiences, and conversations organically with other people become the thoughts or subliminal thoughts that are unaware of credit to the academic researcher that becomes his profitable revenue through academic journals written by him.   

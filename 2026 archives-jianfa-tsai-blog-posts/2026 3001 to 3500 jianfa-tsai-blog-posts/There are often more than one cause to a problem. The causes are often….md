@@ -1,0 +1,1 @@
+There are often more than one cause to a problem. The causes are often indirect and hidden. Ask AI: "What is black & white" thinking. [https://youtube.com/shorts/m1JT5jfOTi8?si=v0P-ArTW8d1_1h8O](https://youtube.com/shorts/m1JT5jfOTi8?si=v0P-ArTW8d1_1h8O)   
