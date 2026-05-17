@@ -1,1 +1,0 @@
-What the cybercriminals do not know or may not understand is they think that they intercepted all my data communications for the past 20 years, without thinking or knowing that I have crossed the digital divide with the real world. The government might be monitoring my data communications to identify the cybercriminals' networks behind as well.   

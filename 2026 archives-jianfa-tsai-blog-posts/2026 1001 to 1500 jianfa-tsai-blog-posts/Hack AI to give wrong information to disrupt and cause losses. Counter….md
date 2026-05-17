@@ -1,1 +1,0 @@
-# Hack AI to give wrong information to disrupt and cause losses. Counter manipulation by cross referencing and checking if the AI recommended product is available at the merchant online store by visiting the merchant or supermarket website and app to search for product name and brand name directly.   

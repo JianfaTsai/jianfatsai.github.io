@@ -1,1 +1,0 @@
-# YouTube missing like TV non stop running of content and missing the no need to use brain to choose step. Implement a YouTube TV section or chrome extension that takes content from YouTube to play like TV non stop  

@@ -1,1 +1,0 @@
-# manipulator pay reward to jianfa's powerholder to influence jianfa and his partner to travel to south korea seoul holiday as flight and hotel costs are cheapest in harsh winter. Indirect bully?

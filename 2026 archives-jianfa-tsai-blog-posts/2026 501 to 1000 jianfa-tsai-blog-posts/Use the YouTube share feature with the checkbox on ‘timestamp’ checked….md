@@ -1,1 +1,0 @@
-# Use the YouTube share feature with the checkbox on ‘timestamp’ checked, to copy the link for pasting into Chrome browser favourites shortcut URL for quick access to the same frequently watched video.   

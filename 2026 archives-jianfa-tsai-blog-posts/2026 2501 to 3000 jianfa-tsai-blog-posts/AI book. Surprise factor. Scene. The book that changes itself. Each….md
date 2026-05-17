@@ -1,1 +1,0 @@
-# AI book. Surprise factor. Scene. The book that changes itself. Each turn a page or scroll down the sentence appear. Each flip of previous page or scroll up the previous displayed sentence replaced by new sentence.   

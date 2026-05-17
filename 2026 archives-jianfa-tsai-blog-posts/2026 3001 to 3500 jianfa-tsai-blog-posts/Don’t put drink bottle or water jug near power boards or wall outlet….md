@@ -1,1 +1,0 @@
-# Don’t put drink bottle or water jug near power boards or wall outlet in case you knock the water into electrical outlets when you walk in the dark to turn on the room light. Ideally, use Phillips hue smart lighting paired with voice assistants via smart speakers to turn off and turn on room lighting with your voice while lying in bed.   

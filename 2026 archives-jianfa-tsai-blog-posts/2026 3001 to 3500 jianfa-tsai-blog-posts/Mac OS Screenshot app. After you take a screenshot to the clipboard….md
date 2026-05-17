@@ -1,1 +1,0 @@
-Mac OS Screenshot app. After you take a screenshot to the clipboard, there's a small pop-up window on the left corner of the screen. Make sure that you use a most precise pointer to click and hold on the top left corner of the small screenshot window so you can increase your pinpoint accuracy to drag and drop the screenshot into your note-taking app.   

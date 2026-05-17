@@ -1,1 +1,0 @@
-The insides of dishwashing gloves are dirty. After using the dishwashing gloves, immediately use soap and water to wash your hands. Separately, the tea towels are dirty. If you are wealthy, ideally use a paper towel to dry your hands each time, regardless of what you do.   

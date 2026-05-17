@@ -1,1 +1,0 @@
-# Make sure meeting or workshop don’t go overtime or end too early. Appple watch calendar app vibrate 10 mins before event finish time. Billion dollar insight to max profits and charity donations. Max global productivity. Checkbox app settings.   

@@ -1,1 +1,0 @@
-# Create a video of a 4 persons (each person with two hands) sitting in a circle on the floor. A Caucasian male with blonde hair and blue eyes turns to his right to shake hands with a Hispanic female. The Hispanic female then turns to her right to shake hands with a bespectacled Chinese male. The Chinese male turns to his right to shake hands with an African female. #drawings   

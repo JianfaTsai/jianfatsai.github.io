@@ -1,1 +1,0 @@
-Crimes of passion: relationship. Add custom instruction to Grog AI to consider any new purchases or, before doing any behaviour X or saying any words Y to another person, or introducing the environment of another person in the property that they do not own. Consider the power dynamics and relationship part of things. Consequences and implications.   

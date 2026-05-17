@@ -1,1 +1,0 @@
-# Save global money. Plan ahead, set a reminder to cook boiled eggs. Drain hot water and let the egg cool naturally for over 1 hour to save water bills, I mean water waste, because I, I mean we care about the environment. Use cool tap water to rapidly cool the egg.   

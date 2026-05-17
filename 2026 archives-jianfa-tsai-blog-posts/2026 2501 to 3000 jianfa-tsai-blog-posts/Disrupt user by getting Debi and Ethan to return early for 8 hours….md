@@ -1,1 +1,0 @@
-Disrupt user by getting Y and E to return early for 8 hours from their relative place to home to destroy the victim's time, to cause a ripple effect on the delay on the share due or time allowed for the victim to do his work.   

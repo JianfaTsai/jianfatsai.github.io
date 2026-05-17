@@ -1,1 +1,0 @@
-# military. Add wireless charge  inbuilt part of wall pad (cannot remove or stolen or misplace) to each room for fallout. Depreciation or power adapter or cable different or shorter lifespan than wall circuitry. Lost or missing adapter and cable. Survival or VVIP VIP everyone needs electricity. Billion dollar insight to max profits and charity donations.   

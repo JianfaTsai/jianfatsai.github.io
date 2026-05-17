@@ -1,1 +1,0 @@
-# Save money. Instead taking cabs to and fro to posh mall where you spend a lot of money. Walk to nearby shops or library for a breather and psychological break before returning home to do work for the second part of the day.   

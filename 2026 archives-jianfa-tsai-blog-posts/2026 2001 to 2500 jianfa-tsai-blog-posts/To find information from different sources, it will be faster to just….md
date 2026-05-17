@@ -1,1 +1,0 @@
-To find information from different sources, it will be faster to just take a screenshot of the paragraphs of each source to put next to each other in the free form canvas, where you can add annotation. When you paste the screenshot, it auto-includes the website address of the source of the screenshot.   

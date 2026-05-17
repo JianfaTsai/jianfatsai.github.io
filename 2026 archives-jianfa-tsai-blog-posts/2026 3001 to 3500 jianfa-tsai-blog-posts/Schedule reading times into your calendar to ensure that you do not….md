@@ -1,1 +1,0 @@
-# Schedule reading times into your calendar to ensure that you do not miss daily reading. It’s better to read 15 mins three times day at 10 am, 3 pm and 8 pm, than to cram read 5 hours straight in a single session per week. Same principle for preparing for assignments, exams, work projects, dieting, relationships, and myriad of other human activities   

@@ -1,1 +1,0 @@
-How to know what is useful or useless knowledge?

@@ -1,1 +1,0 @@
-Save money by washing the metal containers used to store cookies and retrofit them to store small household items (after finishing all the biscuits).

@@ -1,1 +1,0 @@
-# Don’t copy answers from AI to notetaking app to deter cybercriminals by delaying information dissemination. Save only questions for learning purposes. future generations or future you can ask the questions from note taking app into AI to get better accurate answers as cybercriminals may be dead from their lifestyle choices or the AI app security is updated to be stronger.   

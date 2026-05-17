@@ -1,1 +1,0 @@
-# Imagine young self visually in your mind’s eye to insert into your past decades old memory next to person or in old home room and memory walk around each room of the old home and recall past conversations with the ex friend  

@@ -1,1 +1,0 @@
-# Yamashita as last name is bad marketing. "Shit" subliminal communication of negative that destroy sales. Change last name. Business and political promotion. We live in an internet connected global village.

@@ -1,1 +1,0 @@
-Use the macOS Safari extension Wayback Machine Safari extension to view web pages over time. The old web pages before the current website link are broken. This solves the problem when the link provided by your Diploma or Degree Institution gives a broken website link.   

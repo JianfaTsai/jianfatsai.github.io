@@ -1,1 +1,0 @@
-# Play smart, not reckless  

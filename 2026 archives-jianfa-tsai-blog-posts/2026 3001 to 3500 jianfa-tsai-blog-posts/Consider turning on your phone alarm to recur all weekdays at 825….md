@@ -1,1 +1,0 @@
-Consider turning on your phone alarm to recur all weekdays at 8:25 am to wear shoes as frequent morning rushing is unnecessary and the stress is not good for health. Use your corporate time management skills for your mornings at home. Thank you.   

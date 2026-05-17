@@ -1,1 +1,0 @@
-A strategic doctor can safeguard the lives of himself and his loved ones, as well as create new business opportunities, by resigning, avoiding medical work during serious times such as pandemics, and taking on other jobs. Once the pandemic is over, the doctor can go back to being a doctor, just simply make up an excuse.   

@@ -1,1 +1,0 @@
-# A5 post it note for single idea to solve the problem of A4 printing paper too big, cancel out previously processed idea transfer from paper to digital create clutter, cognitive stress and time waste. Traditional post it note is too small, Middle ground business opportunity   

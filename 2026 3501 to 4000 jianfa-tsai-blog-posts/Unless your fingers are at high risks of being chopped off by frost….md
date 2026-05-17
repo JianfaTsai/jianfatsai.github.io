@@ -1,1 +1,0 @@
-# Unless your fingers are at high risks of being chopped off by frost bite, then you don’t need to buy the upgrade. Use creativity to fix the problem at low costs or free or avoid going to the environment where the problem occurs.   

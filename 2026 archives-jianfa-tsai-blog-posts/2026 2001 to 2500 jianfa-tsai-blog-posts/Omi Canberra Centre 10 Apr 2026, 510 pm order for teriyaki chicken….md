@@ -1,1 +1,0 @@
-# Restaurant X 10 Apr 2026, 5:10 pm order for teriyaki chicken, miso soup, tofu don and wagyu beef don. Cardboard soup spoon takeaway, handle not strong enough, life hack to Russian Matryoshka doll two takeaway spoons to use to eat with.   

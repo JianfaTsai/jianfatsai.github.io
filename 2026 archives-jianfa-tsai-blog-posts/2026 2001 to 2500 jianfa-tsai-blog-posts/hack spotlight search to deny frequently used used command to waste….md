@@ -1,1 +1,0 @@
-# hack spotlight search to deny frequently used used command to waste time and disrupt e.g. text replacement become replace text yellow shortcut. Do screen recording of hack and upload to social media 20 Apr 2026, 1 pm.   

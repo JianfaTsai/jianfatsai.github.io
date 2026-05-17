@@ -1,3 +1,0 @@
-There is a use case for the soldier jet pack to be integrated with auto aiming laser guided weaponry (limited firing range e.g. front of soldier only), when the soldier is flying mid air towards the enemy, the soldier press a button on his glove to turn on the auto aiming and auto firing system that will auto fire and kill all humans within range (only in front of the soldier). [https://youtube.com/shorts/rVMy0Drw5ug?si=kEsYmSmvNYGUx2jM][1]
-
-[1]:	https://youtube.com/shorts/rVMy0Drw5ug?si=kEsYmSmvNYGUx2jM

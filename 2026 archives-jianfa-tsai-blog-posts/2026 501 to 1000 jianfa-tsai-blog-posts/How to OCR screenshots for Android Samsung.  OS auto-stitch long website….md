@@ -1,1 +1,0 @@
-# How to OCR screenshots for Android Samsung.  OS auto-stitch long website into a screenshot. Upload a long screenshot to AI to summarise and ask questions. This saves time and maximises productivity.   

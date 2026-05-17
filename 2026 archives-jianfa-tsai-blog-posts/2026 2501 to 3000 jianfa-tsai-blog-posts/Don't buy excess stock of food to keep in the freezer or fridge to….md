@@ -1,1 +1,0 @@
-Don't buy excess stock of food to keep in the freezer or fridge to deter criminals from coming inside your house to steal food. They might have other criminal thoughts to further create greater crimes and harm to you and loved ones, such as killing you.   

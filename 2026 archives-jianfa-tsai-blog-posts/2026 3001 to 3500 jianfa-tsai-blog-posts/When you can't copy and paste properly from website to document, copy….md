@@ -1,1 +1,0 @@
-When you can't copy and paste properly from website to document, copy the text from the website and paste into the address bar to remove formatting. Copy the text from the address bar on the browser into document.   

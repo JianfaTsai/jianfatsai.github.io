@@ -1,1 +1,0 @@
-Allegedly, crime syndicate max profits by stealing from swimming pool and night club management by letting own gang members and own customers in to use facilities for free. Implement AI cctv to auto count headcount daily in premise to cross-check against money in management bank account. 

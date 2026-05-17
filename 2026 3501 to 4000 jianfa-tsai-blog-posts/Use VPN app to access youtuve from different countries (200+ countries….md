@@ -1,1 +1,0 @@
-# Use VPN app to access youtuve from different countries (200+ countries globally) to get different YouTube recommendations on your home page to increase the variability quotient to spark creative and innovative insights to max managmenet profits so bosses can max their charity donations.   

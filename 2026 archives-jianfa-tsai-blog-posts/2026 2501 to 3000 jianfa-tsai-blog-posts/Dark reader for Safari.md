@@ -1,1 +1,0 @@
-# Dark reader for Safari   

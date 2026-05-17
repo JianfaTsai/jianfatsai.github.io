@@ -1,1 +1,0 @@
-There is a problem of having an outdoor light or any light source behind a computer monitor where the light behind the computer monitor glares into your eyes and distracts you from reading the text on the computer monitor.   

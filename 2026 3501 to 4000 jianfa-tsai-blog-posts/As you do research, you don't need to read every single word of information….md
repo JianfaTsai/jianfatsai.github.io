@@ -1,1 +1,0 @@
-As you do research, you don't need to read every single word of information sources, as you don't have enough time. Read a section header or use AI to analyze the website to locate potential information that you may want.   

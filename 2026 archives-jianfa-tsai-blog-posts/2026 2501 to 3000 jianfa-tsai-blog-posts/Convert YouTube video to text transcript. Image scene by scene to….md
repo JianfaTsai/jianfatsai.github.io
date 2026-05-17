@@ -1,1 +1,0 @@
-# Convert YouTube video to text transcript. Image scene by scene to cross reference with government official news sources to identify misinformation and disinformation to auto hide users or criminal uploaded video  

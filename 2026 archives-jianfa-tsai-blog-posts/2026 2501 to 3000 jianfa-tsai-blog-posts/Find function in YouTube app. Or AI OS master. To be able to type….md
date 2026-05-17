@@ -1,1 +1,0 @@
-# Find function in YouTube app. Or AI OS master. To be able to type or speak to YouTube app or AI OS to search keywords in current video and auto adjust the timestamp and display the paused view of the first instance of the keyword in the video   

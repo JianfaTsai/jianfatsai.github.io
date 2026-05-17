@@ -1,1 +1,0 @@
-# Combine ASMR moaning, slurping, breathing, kissing, licking sounds, audio narration with hentai manga, to monetise as a video on adult sites. Use part of the profits to help unfortunate and sick children in third-world nations survive.   

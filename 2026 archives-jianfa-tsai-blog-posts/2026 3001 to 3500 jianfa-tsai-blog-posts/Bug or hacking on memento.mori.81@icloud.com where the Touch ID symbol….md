@@ -1,1 +1,0 @@
-# Bug or hacking on [memento.mori.81@icloud.com](mailto:memento.mori.81@icloud.com) where the Touch ID symbol or password feature is not available on macOS Apple app store as of 3 April 2026, 10:20 am. Screenshot: [https://share.icloud.com/photos/0ab5T7xcqoTLc83DpGJYPe7xQ](https://share.icloud.com/photos/0ab5T7xcqoTLc83DpGJYPe7xQ)  

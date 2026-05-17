@@ -1,1 +1,0 @@
-There’s an old Caucasian woman that frequently walks her small white dog outside our house when you are going to drive out of the driveway in the morning. Please be mindful of her when reversing your vehicle.    

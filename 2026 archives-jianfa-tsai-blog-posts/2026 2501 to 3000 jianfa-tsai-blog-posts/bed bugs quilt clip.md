@@ -1,1 +1,0 @@
-# bed bugs quilt clip  

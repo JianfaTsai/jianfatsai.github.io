@@ -1,1 +1,0 @@
-Grok via a prompt, reply in the English format that's accepted by the professional workplace or university? For example, if you're in Australia, use Australian English. If you're in the USA, use American English.   

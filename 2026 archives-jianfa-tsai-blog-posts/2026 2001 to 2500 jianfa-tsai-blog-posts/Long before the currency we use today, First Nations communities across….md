@@ -1,1 +1,0 @@
-Long before the currency we use today, First Nations communities across Australia used a complex trade system that expanded across the country. It required a deep understanding of the land, water and sky for navigation, and communication skills that traversed multiple languages and customary differences.  

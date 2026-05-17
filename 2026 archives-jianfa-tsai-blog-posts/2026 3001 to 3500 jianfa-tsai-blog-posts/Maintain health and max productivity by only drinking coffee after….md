@@ -1,1 +1,0 @@
-Maintain health and max productivity by only drinking coffee after lunch at 2 pm, and at other times for morning tea. After 2 pm, drink tea. This way, you maintain or cap the limit of your caffeine intake while being able to drink a hot drink to psychologically have a break and recover.   

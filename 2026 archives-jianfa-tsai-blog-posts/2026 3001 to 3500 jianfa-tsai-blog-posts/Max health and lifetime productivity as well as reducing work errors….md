@@ -1,1 +1,0 @@
-# Max health and lifetime productivity as well as reducing work errors, when you feel tired at night and its not bedtime yet, sleep early, but wake up early while ensuring you have enough 9 hours of sleep, so you can wake up the next day to work and learn effectively with a refreshed mind.   

@@ -1,1 +1,0 @@
-# Taxi driver avoid political topics and about violent themed topics to max tips and profits.  Ask AI what are politically neutral topics taxi drivers can chat about. Avoid all other topics. Mass communication to global taxi drivers.   

@@ -1,1 +1,0 @@
-After pouring soft drinks and emptying it into a cup, without putting the empty bottle on the table, immediately take the empty bottle to rinse, drain the water, and cap it, and put it in the recycle bin. Reduce movement and time waste.   

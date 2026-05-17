@@ -1,1 +1,0 @@
-# Only move room furniture after 10 am to prevent the noise from disturbing housemates. 

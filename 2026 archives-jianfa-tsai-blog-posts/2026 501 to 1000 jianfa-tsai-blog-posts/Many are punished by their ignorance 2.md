@@ -1,1 +1,0 @@
-Many are punished by their ignorance. 

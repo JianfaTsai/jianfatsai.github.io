@@ -1,1 +1,0 @@
-# How to show desktop. AI ask Siri. Siri give info on how to use Apple devices. Help menu integrate AI.  Natural language search. Global apps. Barrier to use lower. Max profits. Billion dollar insight to max profits and charity donations.   

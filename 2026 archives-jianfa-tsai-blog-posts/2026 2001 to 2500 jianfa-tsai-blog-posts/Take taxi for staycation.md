@@ -1,1 +1,0 @@
-# Take taxi for staycation  

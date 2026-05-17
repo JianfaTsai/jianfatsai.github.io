@@ -1,1 +1,0 @@
-# Australia pineapple opal  

@@ -1,1 +1,0 @@
-# Make and sell a waterproof, red chilli oil stain-resistant and oil-resistant (easy clean) physical visual timer for hotpot. The user can rapidly rotate the timer dial to be alerted when the raw meat or seafood is done. The beeping sound can be turned off. User knows based on visual colour coded timer indicator.   

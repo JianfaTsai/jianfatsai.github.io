@@ -1,4 +1,0 @@
-7 April 2026 at 3:31 am. Alleged reminders: Mac OS bug or cybercriminal hacking, or to deny the clicking on the reminders to make the victim quit the app and lose his placement on the screen, to waste the victim's time to scroll down and double check multiple times. The counter solution to the hacking or the bug is to swipe and look at the percentage of scroll progress on the right vertical scroll bar. For example, the scroll bar indicates the dot is at 75%. Therefore, you can counterattack the hacking by:  
-* quitting the reminders app, opening the reminders app, and pressing the N key, or scrolling all the way down to the N and scrolling back up to 75% or last placement  
-* before that, remember the key word of the reminders app  
-That way you reduce the total amount of damages or time waste from finding and scrolling previously.  

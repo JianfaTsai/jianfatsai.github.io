@@ -1,1 +1,0 @@
-# Workshop host can use AI to create custom attendance certificates (selling point to max profits), upload a template (using free Google Slides app or keynote app) to AI, and tell AI to, based on the template and the attendees' full name in the spreadsheet, to create batch attendance e - certificates.   

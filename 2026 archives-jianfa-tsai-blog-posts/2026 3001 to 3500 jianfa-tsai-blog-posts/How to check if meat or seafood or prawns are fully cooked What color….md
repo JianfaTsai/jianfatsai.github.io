@@ -1,1 +1,0 @@
-How to check if meat or seafood or prawns are fully cooked? What color should the meat be, apart from using a meat thermometer? Double check the packaging to see whether it says it's pre-cooked prior to being frozen.   

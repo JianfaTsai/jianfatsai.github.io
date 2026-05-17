@@ -1,1 +1,0 @@
-# Wash hands in toilet sink. Open lid of tuna. Drain water out of can into sink. Use fingers to dig tuna out of can on loaf of bread from supermarket. Eat within 3 minutes over sink. Throw tuna can in bin. Wash hands.   

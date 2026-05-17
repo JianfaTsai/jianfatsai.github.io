@@ -1,1 +1,0 @@
-# Library thesis. Opac. Gives count of how many times borrowed sort and filter. Book aging. Worn out. Popularity. Multi prong. Max nation intel. Encourage readership. Don’t want to borrow yellow grimy dirty book with some torn pages or annotated. Missing reporting convenient app feature. I’m weeding. P  

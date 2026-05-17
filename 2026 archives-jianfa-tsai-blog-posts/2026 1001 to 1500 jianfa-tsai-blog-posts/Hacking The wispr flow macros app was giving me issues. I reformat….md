@@ -1,1 +1,0 @@
-Hacking? The wispr flow macros app was giving me issues. I reformat my macos and reinstall a brand new DMG wispr flow file. Now the installed app doesn't open. Can you check the dmg file for Mac Silicon on your website and reply to me when the file is fixed. Thank you. 22 Apr 2026  

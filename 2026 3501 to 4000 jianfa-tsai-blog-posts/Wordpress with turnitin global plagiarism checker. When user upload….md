@@ -1,1 +1,0 @@
-# Wordpress with turnitin global plagiarism checker. When user upload markdown post from ulyssses to Wordpress as draft or published. The Wordpress auto send email and website notification in editor of the post exceeds user defined x% similarity to existing posts.   

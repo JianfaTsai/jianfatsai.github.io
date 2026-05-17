@@ -1,1 +1,0 @@
-# Install app and physical security key that auto changes every second encryption key, need plug in security key to use computer, before shut down to go sleep, click app to remember current files and systems settings 1 and 0 to lock in place. Lock button clicked. , remove physical security key, and shut down.   

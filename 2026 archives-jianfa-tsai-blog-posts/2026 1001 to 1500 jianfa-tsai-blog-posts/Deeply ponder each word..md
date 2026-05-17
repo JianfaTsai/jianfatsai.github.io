@@ -1,1 +1,0 @@
-# Deeply ponder each word.   

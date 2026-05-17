@@ -1,3 +1,0 @@
-Enhance the operating system's print dialogue box with AI. Option 1: Users can tick a box to print only the text of a document or note, excluding images or drawings. Option 2: Users can instruct AI to reformat the document by replacing images with textual descriptions, allowing them to print a text-only version while still capturing the essence of the images. This feature could be particularly useful as a backup for students studying for exams or office workers, in case their computer gets hacked and data is lost. When faced with tight deadlines, they would still have a tangible, printed copy of their notes, data, and documents to continue their work.  
-  
-#tech-ideas   

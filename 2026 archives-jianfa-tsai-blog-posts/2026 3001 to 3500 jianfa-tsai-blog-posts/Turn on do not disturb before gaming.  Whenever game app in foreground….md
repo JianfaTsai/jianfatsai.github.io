@@ -1,1 +1,0 @@
-# Turn on do not disturb before gaming.  Whenever game app in foreground, auto turn on do not disturb focus mode. When app minimised or quit. Auto turn off do not disturb. Same for study apps or particular Mac user profile.   

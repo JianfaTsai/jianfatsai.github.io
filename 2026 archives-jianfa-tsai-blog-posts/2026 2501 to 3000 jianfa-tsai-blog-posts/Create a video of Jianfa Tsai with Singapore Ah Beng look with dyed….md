@@ -1,1 +1,0 @@
-Create a video of Jianfa Tsai with Singapore Ah Beng look with dyed blonde hair, skull head tattoo on his cheek, wearing thick gold necklace and black leather bikie jacket with military black boots.  

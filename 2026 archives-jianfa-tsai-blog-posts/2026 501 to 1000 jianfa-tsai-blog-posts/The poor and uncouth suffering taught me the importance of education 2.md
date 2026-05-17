@@ -1,1 +1,0 @@
-The poor and uncouth suffering taught me the importance of education. 

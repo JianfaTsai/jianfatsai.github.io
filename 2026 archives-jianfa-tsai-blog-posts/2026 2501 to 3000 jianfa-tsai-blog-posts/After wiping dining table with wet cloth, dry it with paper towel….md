@@ -1,1 +1,0 @@
-# After wiping dining table with wet cloth, dry it with paper towel, same for sink and food prep counter top, wipe in the formation, wipe 360 around rim of table, then zig zag row by row top to down, left, down to top, left, top to down.   

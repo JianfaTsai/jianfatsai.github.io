@@ -1,1 +1,0 @@
-# Invert T tent poles plastic, weighted by water base, to create cloth or plastic or curtain style partition 360 around the home workstation to create privacy during webcam video conferencing or online meetings, with added effects of creating a coccoon focus area   

@@ -1,1 +1,0 @@
-Use F13 key to open Notes app and create new note for Wispr Flow detection next to the YouTube window on the Chrome browser. Use F14 key to use quick note. This reduces the risk of creating a new note in the wrong folder that leads to hidden data loss.   

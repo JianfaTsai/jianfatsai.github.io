@@ -1,1 +1,0 @@
-The strength of the benefits of the short-form app is that you can use AI to interact with the books written by professional, established authors and can export the AI analysis and your notes out conveniently.   

@@ -1,1 +1,0 @@
-Copy text from spot A on the document to spot B. After pasting, highlight the text as red (everything in red). As you edit, then change what you edited to black. The way you know if you edited correctly and didn't submit wrong information.   

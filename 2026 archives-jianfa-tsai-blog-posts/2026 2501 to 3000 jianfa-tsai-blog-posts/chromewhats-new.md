@@ -1,3 +1,0 @@
-# chrome://whats-new/  
-  
-#reviewed  

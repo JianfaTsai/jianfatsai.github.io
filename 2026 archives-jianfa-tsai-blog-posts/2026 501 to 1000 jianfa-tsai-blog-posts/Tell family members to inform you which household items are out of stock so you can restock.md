@@ -1,1 +1,0 @@
-Tell family members to inform you which household items are out of stock so you can restock. 

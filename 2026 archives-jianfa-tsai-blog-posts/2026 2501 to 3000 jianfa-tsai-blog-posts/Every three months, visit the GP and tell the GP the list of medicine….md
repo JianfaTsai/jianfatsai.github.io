@@ -1,1 +1,0 @@
-Every three months, visit the GP and tell the GP the list of medicine that you are taking. For the GP to review the medicine so that he can determine whether he should continue taking the medication or not for your health safety.   

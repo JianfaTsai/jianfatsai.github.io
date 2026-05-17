@@ -1,1 +1,0 @@
-Jianfa Tsai used to work at a noodles factory in Singapore. 

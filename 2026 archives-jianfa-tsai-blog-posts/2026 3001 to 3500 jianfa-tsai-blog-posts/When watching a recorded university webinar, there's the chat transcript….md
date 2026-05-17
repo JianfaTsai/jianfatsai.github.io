@@ -1,1 +1,0 @@
-When watching a recorded university webinar, there's the chat transcript with timestamp. Open your note-taking app on the left side, your webinar in the middle on the ultra-wide monitor, and the transcript on the right side of the webinar window. That way, you'll be able to read the chat and, based on the timestamp, move progress of the webinar.   

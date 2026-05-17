@@ -1,1 +1,0 @@
-After I buy the 49-inch ultra-wide computer monitor, my current 32-inch gaming monitor can be placed on the floor and raised to a higher height by pushing it upwards. Pair the monitor with a MUJI floor chair and hook up a PlayStation or Xbox to the monitor to play games while sitting on a floor chair.   

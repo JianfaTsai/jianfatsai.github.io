@@ -1,1 +1,0 @@
-Tear off the stapler part of the packaging and put it in the red waste bin, because the stapler is hard waste. Perhaps you put the stapler part of the packaging in the hard waste bin and the remaining paper part of the packaging in the recycle bin.   

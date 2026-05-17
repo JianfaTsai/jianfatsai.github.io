@@ -1,1 +1,0 @@
-Roblox game app UX: Players earn more money based on more time spent in game. E.g. Every 3 seconds in game, earns them $1, this is reflected conspicuously and visually. 

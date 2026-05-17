@@ -1,1 +1,0 @@
-# Eat plain steamed rice with fish sauce (no meat, no vegetables) to save money. Survival method by poor people. NB: this result in nutrient deficiencies and puts you at higher risks of health diseases due to the fish sauce.   

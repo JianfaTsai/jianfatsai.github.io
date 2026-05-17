@@ -1,1 +1,0 @@
-On 5th April 2026, 11:20 AM, the YouTube doesn't load. I switch on my ExpressVPN app, and the YouTube can load. It could be due to hacking to slow down traffic as a formal denial-of-service attack. Learn from using a VPN to turn on and change your VPN so that you can continue using the internet and update your Apple ID, Google, and other passwords.   

@@ -1,1 +1,0 @@
-# How to combine two variables in Shortcuts macOS app into a single string to copy to clipboard?

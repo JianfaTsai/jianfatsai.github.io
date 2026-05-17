@@ -1,1 +1,0 @@
-# Look at the scheduled tab of your reminder and upcoming calendar events to reschedule all reminders and events to be after your holiday. This way you won’t get disrupted during your holiday due to unexpected circumstances.   

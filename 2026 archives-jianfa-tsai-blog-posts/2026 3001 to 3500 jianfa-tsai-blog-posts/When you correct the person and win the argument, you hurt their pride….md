@@ -1,1 +1,0 @@
-When you correct the person and win the argument, you hurt their pride and create an enemy because you offended them. Even if they concede and submit to your victory, they will indirectly harm you or your loved ones in other ways physically later.   

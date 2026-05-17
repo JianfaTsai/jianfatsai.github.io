@@ -1,1 +1,0 @@
-When you reformat your Mac OS, your Apple App Store might not show the list of applications you download directly from the web browser. Therefore, take a screenshot of the applications folder in Finder and keep it in your iCloud Drive. Set a reminder to do this every two months.   

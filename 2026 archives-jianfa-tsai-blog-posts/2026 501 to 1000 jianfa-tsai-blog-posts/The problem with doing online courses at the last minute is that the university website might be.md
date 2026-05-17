@@ -1,1 +1,0 @@
-The problem with doing online courses at the last minute is that the university website might be undergoing maintenance or having some problems, and you cannot access your course material, which might result in you missing the assignment or quiz deadline. 

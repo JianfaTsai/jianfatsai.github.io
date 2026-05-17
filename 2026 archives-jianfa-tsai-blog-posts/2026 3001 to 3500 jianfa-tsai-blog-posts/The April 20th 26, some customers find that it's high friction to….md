@@ -1,1 +1,0 @@
-The April 20th 26, some customers find that it's high friction to add an AI label on the Instagram iPhone app after creating and uploading the content on the desktop app. There's no AI toggle button to acknowledge that the content is made by AI on the Instagram website desktop browser, so it quickly increases friction and loss of creators and patrons for Instagram.   

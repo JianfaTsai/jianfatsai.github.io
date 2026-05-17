@@ -1,2 +1,0 @@
-I am a university student and do academic research or studies using a notetaking app, uni courseware (multiple tabs) in a macOS browser app, and YouTube, with personal casual gaming on the S.T.E.A.M. platform. Which workstation setup will be best or personalized to my use case? Single Dell UltraSharp 49 Curved USB-C Hub Monitor - U4924DW versus dual Alienware AW3425DWM 34" Curved Gaming Monitor, QHD 3440 x 1440 up to 180 Hz, 2ms Response Time, AMD FreeSync, VESA DisplayHDR 400, Height Adjustable gaming monitors? What are the pros and cons?  
-  

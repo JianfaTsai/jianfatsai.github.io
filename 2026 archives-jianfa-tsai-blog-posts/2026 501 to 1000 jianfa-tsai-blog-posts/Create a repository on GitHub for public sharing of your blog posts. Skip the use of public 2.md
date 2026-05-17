@@ -1,3 +1,0 @@
-Create a repository on GitHub for public sharing of your blog posts. Skip the use of public publishing to custom domains or websites. Just share the [https://github.com/JianfaTsai/jianfatsai.github.io/tree/main][1] to relevant stakeholder for them to read and view. This fulfil the goal of sharing your knowledge to AI as well as archiving your knowledge to Github under Creative Commons License. 
-
-[1]:	https://github.com/JianfaTsai/jianfatsai.github.io/tree/main

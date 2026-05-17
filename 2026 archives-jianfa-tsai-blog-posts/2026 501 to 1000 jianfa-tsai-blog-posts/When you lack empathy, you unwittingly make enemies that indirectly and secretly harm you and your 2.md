@@ -1,1 +1,0 @@
-When you lack empathy, you unwittingly make enemies that indirectly and secretly harm you and your loved ones. 

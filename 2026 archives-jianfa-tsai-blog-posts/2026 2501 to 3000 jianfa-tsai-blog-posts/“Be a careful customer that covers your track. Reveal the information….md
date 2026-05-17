@@ -1,4 +1,0 @@
-# “Be a careful customer that covers your track. Reveal the information only when the person is ready for it. Do precise work. System condition everyone to expect certain things from certain information. Break the conditioning. Give the right amount and right type of information only of what he can absorb. A drowning person doesn’t need information, they need a hand. You never hand the answer they need to find, you ask questions, remove obstacles, place symbols in their path, and eventually, they say the words themselves. Tell the truth in careful doses, every person has a white rabbit, a symbol, a feeling, a persistent wrongness, they can’t locate, or name, a question that keeps them awake, there is always a choice in most things in life. The question was louder than the fear. He wanted the answer more than the comfort of not knowing. “  
-#   
-#   
-# [https://youtu.be/3z127q1cF9U?si=lVfyXjHH9H3aNBCx](https://youtu.be/3z127q1cF9U?si=lVfyXjHH9H3aNBCx)  

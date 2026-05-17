@@ -1,1 +1,0 @@
-# Win-win to boost the economy, maximise peace, and achieve profits. Hire the elderly on welfare whose job is to sit at a booth at the library and the mall to play chess with other people. Limited to 1 game per player.  

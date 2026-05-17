@@ -1,1 +1,0 @@
-During heavy rain, you cannot see the road lane markings, and it's dangerous to drive (high risk of accidents). Use Google Maps to find a nearby car park, then park there. Always stock long-lasting bottled water and snacks in your car. Set a recurring reminder to rotate the stock in your car boot, so you can eat the soon-to-expire items (e.g., 3 months before expiry).   

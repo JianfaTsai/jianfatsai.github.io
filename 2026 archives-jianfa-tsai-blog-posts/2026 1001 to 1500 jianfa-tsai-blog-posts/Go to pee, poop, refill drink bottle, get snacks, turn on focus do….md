@@ -1,1 +1,0 @@
-# Go to pee, poop, refill drink bottle, get snacks, turn on focus do not disturb, tell your family member sin the same house to not disturb as you have meeting now. cybercriminals app notify and call you or disrupt when they know from hacked calendar and email that you have a zoom meeting now.   

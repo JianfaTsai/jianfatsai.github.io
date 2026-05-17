@@ -1,1 +1,0 @@
-Education is a privilege not afforded to many. 

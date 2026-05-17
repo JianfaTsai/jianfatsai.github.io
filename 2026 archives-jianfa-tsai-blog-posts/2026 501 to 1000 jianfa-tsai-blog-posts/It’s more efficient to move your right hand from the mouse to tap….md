@@ -1,1 +1,0 @@
-# It’s more efficient to move your right hand from the mouse to tap on the F13 to F19 keys on the Apple Magic Keyboard Numpad, as it reduces movement and time wasted compared to moving your left hand to tap on the aforementioned keys.   

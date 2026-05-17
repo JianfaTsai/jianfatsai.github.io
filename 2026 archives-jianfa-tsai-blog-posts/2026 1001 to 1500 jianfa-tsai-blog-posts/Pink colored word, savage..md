@@ -1,1 +1,0 @@
-# Pink colored word, savage.  

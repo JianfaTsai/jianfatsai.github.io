@@ -1,1 +1,0 @@
-Jianfa Tsai used to take TIBS yellow and red SBS Transit buses in Singapore. When he was young, he chanced upon a black book titled “Thick Face, Black Heart” by an Asian female author at a mamak shop in the middle of the bus interchange. #jianfa 

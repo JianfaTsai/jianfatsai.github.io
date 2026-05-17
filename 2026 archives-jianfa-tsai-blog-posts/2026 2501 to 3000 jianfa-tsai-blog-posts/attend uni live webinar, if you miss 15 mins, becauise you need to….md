@@ -1,1 +1,0 @@
-# Attend the university live webinar. If you miss 15 minutes because you need to go downstairs to get food, you can use your MacBook, iPad, or iPhone to watch and listen at the same time, or just use your AirPods, or catch up on the missed segment via the recorded webinar.   

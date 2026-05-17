@@ -1,1 +1,0 @@
-# With Australia and several other countries banning adult websites, there is a business opportunity to create a Raycast macOS app and a keyboard shortcut that single-binds a physical key A to rapidly open the Express VPN app and auto-connect to Tokyo VPN to access adult websites. Press the second physical key B on the keyboard to turn off VPN. There’s less steps involved.  

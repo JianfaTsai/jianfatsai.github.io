@@ -1,1 +1,0 @@
-# Use document or note app search functin to quickly proof read if confidential information are on the document, this can be an AI add on to microsfot word and email app whre the app auto pop up notify when user pasted or typed confidential information, user have to click X to   

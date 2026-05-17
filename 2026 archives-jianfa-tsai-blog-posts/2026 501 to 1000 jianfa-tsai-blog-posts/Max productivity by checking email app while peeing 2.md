@@ -1,1 +1,0 @@
-Max productivity by checking email app while peeing. 

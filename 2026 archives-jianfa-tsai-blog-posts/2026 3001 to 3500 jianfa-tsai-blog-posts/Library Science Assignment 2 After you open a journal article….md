@@ -1,1 +1,0 @@
-Library Science Assignment 2: After you open a journal article in full-text PDF, press the end button to jump to the end of the article to obtain information such as the personal information or career or background information of the authors and the other metadata of the article.   

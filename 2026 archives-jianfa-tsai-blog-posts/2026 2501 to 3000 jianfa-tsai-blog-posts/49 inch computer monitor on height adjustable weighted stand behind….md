@@ -1,1 +1,0 @@
-# 49 inch computer monitor on height adjustable weighted stand behind treadmill in front of your face for immersive jogging. Improve monitor to be military grade shock resistant using treadmill electronic parts tech.   

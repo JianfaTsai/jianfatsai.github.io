@@ -1,1 +1,0 @@
-Because life circumstances are unpredictable and uncontrollable, you can only buy the app or web services right before you need to use them, because the company that makes the software might have closed down, or your needs might have changed, and therefore, you do not need to buy at all. This helps you to save money. 

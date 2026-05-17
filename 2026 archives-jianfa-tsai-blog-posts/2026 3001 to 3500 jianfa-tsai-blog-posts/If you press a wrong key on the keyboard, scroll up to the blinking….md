@@ -1,1 +1,0 @@
-If you press a wrong key on the keyboard, scroll up to the blinking text part and delete the wrongly entered key. You can create an app and assign it to another keyboard shortcut key so they can press that physical key to jump to where your text cursor is at.   

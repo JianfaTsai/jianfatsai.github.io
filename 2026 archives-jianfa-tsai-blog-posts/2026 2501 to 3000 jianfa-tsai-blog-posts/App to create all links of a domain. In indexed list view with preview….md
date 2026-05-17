@@ -1,1 +1,0 @@
-# App to create all links of a domain. In indexed list view with preview window below each link. Optional.AI check and human view audit. Eliminate search. Billion dollar insight to max profits and charity donations.   

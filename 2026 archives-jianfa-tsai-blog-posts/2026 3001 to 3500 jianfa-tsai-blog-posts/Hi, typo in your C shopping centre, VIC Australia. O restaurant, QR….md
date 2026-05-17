@@ -1,1 +1,0 @@
-Hi, typo in your C shopping centre, VIC Australia. O restaurant, QR code ordering process: "make you payment" should be "make your payment". Missing "r", fixing communicates professionalism and profits. I recommend the use of AI or Grammarly app to check your digital documents and websites or QR menu for grammar and typo before publishing. 15 May 2026 at 11:41 am  

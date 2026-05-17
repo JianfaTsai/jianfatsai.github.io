@@ -1,1 +1,0 @@
-After someone has read an alphabet to you, repeat aloud what you just heard. 

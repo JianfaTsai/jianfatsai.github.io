@@ -1,1 +1,0 @@
-The foolish man does in the end what the wise man does in the beginning. 

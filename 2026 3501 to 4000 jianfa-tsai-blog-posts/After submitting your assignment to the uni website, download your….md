@@ -1,1 +1,0 @@
-After submitting your assignment to the uni website, download your submitted assignment to the downloads folder to double-check everything is 100% accurate. If everything is fine, then delete the files from your downloads folder, but keep the original final file in your assignment folder in your iCloud Drive.   

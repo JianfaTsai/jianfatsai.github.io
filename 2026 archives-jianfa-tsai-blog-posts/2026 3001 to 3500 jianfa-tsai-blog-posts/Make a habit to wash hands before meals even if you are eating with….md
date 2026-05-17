@@ -1,1 +1,0 @@
-# Make a habit to wash hands before meals even if you are eating with spoon and fork, as cybercriminals hack your computer to cause you to be stressed and distracted after 1 day of troubleshooting, and you eat food direct with your hands and forgot to wash your hands leading to food poisoning.   

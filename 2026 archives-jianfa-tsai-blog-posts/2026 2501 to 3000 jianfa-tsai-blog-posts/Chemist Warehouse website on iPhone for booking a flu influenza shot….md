@@ -1,1 +1,0 @@
-Chemist Warehouse website on iPhone for booking a flu influenza shot on 15 April 9:50 AM. When you book online, there's a limited 30-minute countdown time before your booking time kicks up to another person.   

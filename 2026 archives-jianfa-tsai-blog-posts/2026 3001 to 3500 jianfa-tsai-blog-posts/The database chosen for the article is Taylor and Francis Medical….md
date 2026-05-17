@@ -1,1 +1,0 @@
-The database chosen for the article is Taylor and Francis Medical Library. Instead of typing in the next sentence, Taylor and Francis Medical Library is an official website. Change the word Taylor and Francis Medical Library to the database is X, Y, Z. It prevents the same words from being clustered next to each other to prevent demotivation in the reader   

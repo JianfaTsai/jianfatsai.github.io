@@ -1,1 +1,0 @@
-# Physical labour and socialising with other people keeps you cognitively, emotionally and physically healthy. [https://youtube.com/shorts/wVQ-abYiZyU?si=jgR8RsQuD3_1C6Au](https://youtube.com/shorts/wVQ-abYiZyU?si=jgR8RsQuD3_1C6Au)  

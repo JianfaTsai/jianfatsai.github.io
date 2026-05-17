@@ -1,1 +1,0 @@
-Turn on dark mode for your Word document to write your assignment or essay or thesis. Before submission, triple check by turning on light mode and highlighting each section of the document using the Speechify app to option A to read aloud to double check for contextual errors; then turn on the Word document grammar editor to check for grammar and typos and   

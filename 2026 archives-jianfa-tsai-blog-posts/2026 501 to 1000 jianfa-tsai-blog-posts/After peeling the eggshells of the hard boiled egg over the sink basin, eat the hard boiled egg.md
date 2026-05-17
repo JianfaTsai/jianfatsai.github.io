@@ -1,1 +1,0 @@
-# After peeling the eggshells of the hard boiled egg over the sink basin, eat the hard boiled egg directly in front of the sink to save time, and reduce movement wastes or steps. 

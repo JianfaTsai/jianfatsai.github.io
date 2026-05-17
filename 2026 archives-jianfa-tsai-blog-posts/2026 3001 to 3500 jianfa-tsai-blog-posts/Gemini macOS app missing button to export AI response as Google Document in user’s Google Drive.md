@@ -1,1 +1,0 @@
-Gemini macOS app missing button to export AI response as Google Document in user’s Google Drive Web, My Drive folder (current workflow enabled for Gemini iOS app). Please implement for consistency and to prevent breakage in user’s workflow. 

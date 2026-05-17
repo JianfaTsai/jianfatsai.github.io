@@ -1,1 +1,0 @@
-# deny our own desires  

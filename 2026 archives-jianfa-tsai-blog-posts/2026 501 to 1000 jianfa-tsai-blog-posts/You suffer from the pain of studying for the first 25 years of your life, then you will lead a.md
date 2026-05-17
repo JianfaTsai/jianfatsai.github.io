@@ -1,5 +1,0 @@
-You suffer from the pain of studying for the first 25 years of your life, then you will lead a better life for the rest of your life (70 years). If you don’t study hard or study smart, you suffer for 70 years. Is it worth it not to study hard? We struggle in love and human relationships. If you learn to let go and pass the trials and tribulations, you become mature and wise. You may feel arrogant when you are young, but once you step into society, you realise you have to swallow your pride and endure humiliation just to earn a little money so you, your loved ones, and your children can survive. It’s the small daily habits of self-discipline that compound into huge benefits that pay dividends for the rest of your life (林姨书语橱窗购书, 2026).
-
-[https://youtube.com/shorts/avrxs8enUVM?si=EvBM9XSa1y8obNe9][1]
-
-[1]:	https://youtube.com/shorts/avrxs8enUVM?si=EvBM9XSa1y8obNe9

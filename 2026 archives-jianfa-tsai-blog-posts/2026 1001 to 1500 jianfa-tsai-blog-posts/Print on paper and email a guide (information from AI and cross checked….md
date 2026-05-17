@@ -1,1 +1,0 @@
-# Print on paper and email a guide (information from AI and cross checked by yourself for accuracy), on how to take of your indoor plants. Sent the paper document and email the same information to the caretaker of your plants before you go for overseas holiday  

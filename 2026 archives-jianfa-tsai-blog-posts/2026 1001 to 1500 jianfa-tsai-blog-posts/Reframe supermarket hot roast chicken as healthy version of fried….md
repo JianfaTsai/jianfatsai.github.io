@@ -1,1 +1,0 @@
-# Reframe supermarket hot roast chicken as healthy version of fried chicken from fast food restaurants. Take market share. Social media teach eat whole chicken with packet of pre rinsed salad and loaf of bread.  is one healthy meal for family of four. No need cook rice.  

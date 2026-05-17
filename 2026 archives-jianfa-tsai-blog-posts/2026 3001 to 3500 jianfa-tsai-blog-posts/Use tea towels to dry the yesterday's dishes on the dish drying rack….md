@@ -1,1 +1,0 @@
-Use tea towels to dry the yesterday's dishes on the dish drying rack. First thing in the morning, when you wake up because your mind is still a bit blur, the little bit of housework will help to start your brain and get you going so you can be more productive later in your work and study.   

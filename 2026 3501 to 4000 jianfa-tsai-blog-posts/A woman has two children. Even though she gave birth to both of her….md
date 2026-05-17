@@ -1,1 +1,0 @@
-A woman has two children. Even though she gave birth to both of her babies, Child one is her favourite child. Child two, she dislikes the child.  Is that the reason that some women cannot be in management positions because they cannot assess matters objectively?   

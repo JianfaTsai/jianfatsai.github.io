@@ -1,1 +1,0 @@
-******When you accept a meeting invitation the following occurs: The meeting is added to your calendar. We can see that you have accepted the invitation. The accepted invitation email is moved to your "Deleted Items" folder. All the information included in the invitation, such as the meeting details, will be visible in your calendar entry.*   

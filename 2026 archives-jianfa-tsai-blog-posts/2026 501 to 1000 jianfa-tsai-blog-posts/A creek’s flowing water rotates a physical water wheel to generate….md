@@ -1,1 +1,0 @@
-# A creek’s flowing water rotates a physical water wheel to generate electricity, a regulator, and a motor, which power and move the swing seat. Sit on the swing to enjoy the sounds of the river, nature, trees, birds, and insects. The swing moves gently like a rocking chair, allowing you to dine and enjoy wine while relaxing.   

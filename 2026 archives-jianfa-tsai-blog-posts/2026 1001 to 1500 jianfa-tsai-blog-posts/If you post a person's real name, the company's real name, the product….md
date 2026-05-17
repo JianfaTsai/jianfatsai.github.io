@@ -1,1 +1,0 @@
-If you post a person's real name, the company's real name, the product brand name, or the organization name, you make an enemy. Just write your story and post it to the AI private chat app to create a fictional story with fake names before you use the material as storytelling.   

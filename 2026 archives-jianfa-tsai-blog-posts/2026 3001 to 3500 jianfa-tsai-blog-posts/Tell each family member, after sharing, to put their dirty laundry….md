@@ -1,1 +1,0 @@
-Tell each family member, after sharing, to put their dirty laundry in a laundry basket on the ground level of the house. This eliminates back injury and risk of fall for elderly or older people, maids, mothers, and women from carrying heavy laundry basket up and down.   

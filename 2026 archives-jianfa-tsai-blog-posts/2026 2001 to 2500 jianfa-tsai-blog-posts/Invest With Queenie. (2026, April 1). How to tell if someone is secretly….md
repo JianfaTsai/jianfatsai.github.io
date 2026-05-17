@@ -1,3 +1,0 @@
-Invest With Queenie. (2026, April 1). *How to tell if someone is secretly rich (It’s not what you think)* [Video]. YouTube. https://www.youtube.com/watch?v=8gvMncbj3RQ  
-  
-Jianfa Tsai: Goodwill feedback. 0:31 For your future content and to share with global female creators with similar vibes and style as you, consider replacing your dull-coloured drink with a vibrant green matcha latte in a transparent designer glass. This enhances the aesthetics of your video, which indirectly maximises viewership, patron subscriptions, and sales of your products or services from your sponsors. Monetisable as a media, communications, and fashion thesis. #tech-ideas   

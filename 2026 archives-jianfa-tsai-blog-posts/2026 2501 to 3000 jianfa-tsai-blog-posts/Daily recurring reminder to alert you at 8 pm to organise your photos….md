@@ -1,1 +1,0 @@
-# Daily recurring reminder to alert you at 8 pm to organise your photos taken today into albums, after organising, add the last photo taken before 8 pm today, into albums titled, checked photo positioning, so the next day when you need to organise your photos at next day 8 pm, you refer to the album positioning to begin where you left off from to organise the new photos.   

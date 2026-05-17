@@ -1,1 +1,0 @@
-On holiday, pack your ipad without its keyboard case instead of putting iPad in the hotel safe that can be opened by criminals with stolen staff access. bbi future work laptop with detachable keyboard and trackpadd like iPad pro   

@@ -1,1 +1,0 @@
-In a Word document, to prevent errors from including wrong information or forgetting to delete information or word, copy the first word of the previously entered text to obtain the formatting to paste in the destination and type the rest via Wispr Flow  

@@ -1,1 +1,0 @@
-Buy Breville transparent glass kettle to put in your room. Set a recurring daily reminder to fill the kettle with room-temperature water the night before. Boil water inside your bedroom to make coffee when you wake up. This reduces the risk of annoying other housemates who wake up late and are still sleeping when you go downstairs at 6:30 am every day to boil water for coffee. 

@@ -1,1 +1,0 @@
-# Socks at hotel lobby  

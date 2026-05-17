@@ -1,1 +1,0 @@
-# You can subscribe to be a member of the University libraries even if you are not a student or staff member 

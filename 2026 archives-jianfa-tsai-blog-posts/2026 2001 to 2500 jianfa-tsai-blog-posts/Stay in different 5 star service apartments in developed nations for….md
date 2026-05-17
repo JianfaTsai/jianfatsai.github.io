@@ -1,1 +1,0 @@
-# Stay in different 5 star service apartments in developed nations for 1 night per apartment to take photos and learn about the design of each apartment, to use as reference to communicate to your architect for building and designing your own apartment.   

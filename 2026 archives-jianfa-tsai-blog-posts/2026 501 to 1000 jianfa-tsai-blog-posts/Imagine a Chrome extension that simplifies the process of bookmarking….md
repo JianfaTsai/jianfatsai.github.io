@@ -1,1 +1,0 @@
-Imagine a Chrome extension that simplifies the process of bookmarking one or more tabs into your reading bookmarks folder. Simply right-click on the highlighted browser tabs and click one more button, and you’ll add everything to your reading list.   

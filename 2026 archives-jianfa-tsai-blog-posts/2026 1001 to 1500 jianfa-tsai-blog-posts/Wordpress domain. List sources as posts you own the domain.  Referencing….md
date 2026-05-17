@@ -1,1 +1,0 @@
-List sources as posts you own the web domain.  Referencing. Wont delete if you use other hosting companies. Bankrupt or hack. Backup to hard drive. 

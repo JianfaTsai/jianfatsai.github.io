@@ -1,3 +1,0 @@
-# Sop dishwashing process   
-  
-#reviewed  

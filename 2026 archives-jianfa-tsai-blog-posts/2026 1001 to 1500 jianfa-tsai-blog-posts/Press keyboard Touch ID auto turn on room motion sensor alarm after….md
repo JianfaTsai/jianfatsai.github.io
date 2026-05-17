@@ -1,1 +1,0 @@
-# Press keyboard Touch ID auto turn on room motion sensor alarm after 2 mins delay. Leave room. Alarm triggers make siren and vibrate Apple Watch and iPhone. Turn on or turn off motion sensor by Apple Watch button. Auto lock home room door with key pass. Door auto swing shut and auto lock  

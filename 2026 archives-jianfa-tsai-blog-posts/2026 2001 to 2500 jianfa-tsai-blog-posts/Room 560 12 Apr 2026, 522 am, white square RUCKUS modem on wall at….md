@@ -1,1 +1,0 @@
-# Hotel room C 12 Apr 2026, 5:22 am, white square modem on wall at study desk, next to wall outlets make slightly irritating processing or buzzing noises, please add to company knowledge hub and share with global architects in view of procuring alternate modem type or brand when hotel is due for renovation.   

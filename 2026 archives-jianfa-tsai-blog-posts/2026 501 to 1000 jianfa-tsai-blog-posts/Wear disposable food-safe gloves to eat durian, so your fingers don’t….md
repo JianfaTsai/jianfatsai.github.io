@@ -1,1 +1,0 @@
-# Wear disposable food-safe gloves to eat durian, so your fingers don’t smell like durian and you don’t consume naked to human eyes faecal matter, urine, bodily fluids or contaminants on your finger tips to enter your body through your mouth.   

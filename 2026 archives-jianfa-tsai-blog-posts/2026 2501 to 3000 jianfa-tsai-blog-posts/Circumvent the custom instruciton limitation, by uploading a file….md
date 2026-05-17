@@ -1,1 +1,0 @@
-# Circumvent the custom instruciton limitation, by uploading a file with prompt instruction to google drive linked to grok and via prompt reference to custom instruciton google drive file before asking AI on each new prompt  

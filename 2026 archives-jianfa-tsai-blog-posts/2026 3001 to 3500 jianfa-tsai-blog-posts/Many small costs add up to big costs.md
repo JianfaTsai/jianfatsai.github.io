@@ -1,1 +1,0 @@
-Many small costs add up to big costs. 

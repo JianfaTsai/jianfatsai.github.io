@@ -1,1 +1,0 @@
-# Don’t buy large numbers of new supermarket food that you have never tasted before. If it’s not to your liking, you suffer to finish the batch or you throw the batch away thus suffering financial losses.  

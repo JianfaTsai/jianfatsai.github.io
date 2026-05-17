@@ -1,1 +1,0 @@
-# A red flag targeted cyber bullying or hacking or government laptop infiltrated when computer or internet or vpn have problems in most time pressure critical times. Eg when user is maturbating to open websites. This times can be AI monitored to reverse identify the cybercriminals   

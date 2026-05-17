@@ -1,1 +1,0 @@
-# As you consume each bit of information, ask yourself do you already know this in your existing memory? have you seen this information before? If yes, you can skip or save time documenting the information to free up time, energy and resources to mine new quality information to grow yourself more.  

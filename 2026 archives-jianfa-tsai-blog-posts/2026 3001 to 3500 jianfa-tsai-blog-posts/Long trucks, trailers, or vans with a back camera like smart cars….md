@@ -1,1 +1,0 @@
-Long trucks, trailers, or vans with a back camera like smart cars so the driver can, via the screen or tablet next to the steering wheel, see the back view while it's reversing to reduce company liability in accident fatalities   

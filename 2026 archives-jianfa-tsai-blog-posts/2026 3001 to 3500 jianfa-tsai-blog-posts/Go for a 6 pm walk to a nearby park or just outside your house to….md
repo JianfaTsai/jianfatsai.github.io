@@ -1,1 +1,0 @@
-Go for a 6 pm walk to a nearby park or just outside your house to de-stress before dinner so that you can recover and work longer at night after dinner. There is no sun, and it's cooling and less risk of skin cancer, and there is still daylight, low risk of crime.   

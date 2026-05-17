@@ -1,1 +1,0 @@
-# Blogging, save checking multiple times or proofreading unnecessary by publishing once, then instead of proofreading in Wordpress editor, open incognito browser window to proofread blog website post directly. WYSIWYG  

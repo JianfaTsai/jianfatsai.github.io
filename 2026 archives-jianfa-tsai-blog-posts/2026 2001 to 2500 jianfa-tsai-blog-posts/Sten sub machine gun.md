@@ -1,1 +1,0 @@
-# Sten sub machine gun  

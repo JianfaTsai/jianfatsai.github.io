@@ -1,1 +1,0 @@
-After washing the rice cooker pot, use a clean tea towel to dry the moisture from the outside of the rice cooker pot to prevent the moisture from damaging the insides of the electronic rice cooker.   

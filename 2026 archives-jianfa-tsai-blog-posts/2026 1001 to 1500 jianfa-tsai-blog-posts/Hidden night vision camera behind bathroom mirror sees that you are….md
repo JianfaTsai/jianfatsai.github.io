@@ -1,1 +1,0 @@
-# Hidden night vision camera behind bathroom mirror sees that you are brushing teeth, mirror LED light number display 2 minutes, and start countdown, when you finished brushing for 2 minutes, ignoring pauses, the smart mirror speakers play pleasant melody to alert you to stop brushing your teeth   

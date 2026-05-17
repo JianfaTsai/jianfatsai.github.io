@@ -1,1 +1,0 @@
-When you're writing an assignment and you need to take a break or do it the next day, type a horizontal row of TO DO BELOW TO DO BELOW TO DO BELOW by all alphabet As in red. What’s below the horizontal red words is what you have to do  

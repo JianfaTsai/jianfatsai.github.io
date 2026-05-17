@@ -1,1 +1,0 @@
-After you uploaded the Word document to your Assignment University portal, download the file that's on the portal to your downloads folder. Open it and double-check it again. If there are errors, you can submit it again.   

@@ -1,1 +1,0 @@
-# Tea towel use to dry wet dining plates and cutlery.  washing machine washed dirty tea towel to dry on indoor laundry dry rack as outdoor clothesline are dirty due to exposure to bird and insect poop. Dirt dust. Debris. Human tampering with bio materials .   

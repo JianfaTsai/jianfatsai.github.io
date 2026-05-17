@@ -1,1 +1,0 @@
-# Instead of message or call your partner to find an iPad or iPhone or MacBook. Use find my app to play device sound and look up device gps. Reduce interruption to work focus to max corporate bosses profits p  

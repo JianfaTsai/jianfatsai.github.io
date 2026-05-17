@@ -1,1 +1,0 @@
-Extract the text in the first second page of the attached first image and use the second and third images to create in text parenthetical citation and APA 7 reference for the transcribed text that is in quotation marks.    

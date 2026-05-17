@@ -1,1 +1,0 @@
-# process copy youtube transcrupt using mouse pointer on MACOS into AI ,, delete unwanted parts of transcrupt, add your thoughts and learning, then paraphrase and analyse with AI, publish in blog. Reference and cite the youtuve creator and youtube link  

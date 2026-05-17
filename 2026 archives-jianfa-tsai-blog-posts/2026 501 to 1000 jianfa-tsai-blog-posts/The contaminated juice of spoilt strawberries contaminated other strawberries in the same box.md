@@ -1,1 +1,0 @@
-The contaminated juice of spoilt strawberries contaminated other strawberries in the same box. Eating supposedly good strawberries but is spoilt is likely to harm your gut and health. 

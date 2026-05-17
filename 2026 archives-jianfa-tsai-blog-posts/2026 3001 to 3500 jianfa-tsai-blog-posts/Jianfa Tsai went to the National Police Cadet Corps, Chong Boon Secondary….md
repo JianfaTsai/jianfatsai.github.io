@@ -1,1 +1,0 @@
-# Jianfa Tsai went to the National Police Cadet Corps, Chong Boon Secondary School CCA camp, where, during the camp, we launched a fireball from the third storey of the school building onto the campfire logs on the ground, igniting them. We sing songs around the campfire.   

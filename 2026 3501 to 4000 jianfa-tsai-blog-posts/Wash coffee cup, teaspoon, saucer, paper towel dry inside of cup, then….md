@@ -1,1 +1,0 @@
-# Wash coffee cup, teaspoon, saucer, paper towel dry inside of cup, then dry teaspoon, put teaspoon inside of cup, dry the top part of saucer, then dry outer skin of cup, base of cup, then dry base of saucer.   

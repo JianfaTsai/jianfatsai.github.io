@@ -1,1 +1,0 @@
-# After you typed the number, move your eyeballs to look at the number you just typed to double check its accuracy. Repeat for each number. After you completed data entry for the document, triple check the entire document from top down, turn bottom up, then top down visually and using Speechify app that read aloud the document at the same time.   

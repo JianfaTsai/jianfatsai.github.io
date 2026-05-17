@@ -1,1 +1,0 @@
-Artificial intelligence create answers that looks accurate through the middle manager that is not technically trained, where management fires the programmers and engineers. Then, when the project fails and the company is at the brink of bankruptcy, senior management hires back the fired programmers and engineers to fix the problem.  

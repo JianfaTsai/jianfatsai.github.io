@@ -1,1 +1,0 @@
-# Don’t open door fully, just open enough for 1 person to go through, reduce risks of criminals force in. Add weight to push door open as its easier for you to push door shut to push criminals pushing in out.   

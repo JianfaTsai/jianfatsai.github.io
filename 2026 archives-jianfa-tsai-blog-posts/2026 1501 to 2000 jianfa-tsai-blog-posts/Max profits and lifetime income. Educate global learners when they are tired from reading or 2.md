@@ -1,1 +1,0 @@
-# Max profits and lifetime income. Educate global learners when they are tired from reading or calculating (logic side of their brain), they could take breaks by exiting the room to engage in creative hobbies, housework or exercise. Cycle between activities of different genres every hour. 

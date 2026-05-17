@@ -1,1 +1,0 @@
-Cooking sausages or meat: cut the biggest piece of meat at its thickest part and look if in the middle there is pink or red. If it is all white and it is a bit juicy, that means it is cooked and safe to eat.   

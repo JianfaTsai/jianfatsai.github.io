@@ -1,1 +1,0 @@
-# Blue Honda jazz  

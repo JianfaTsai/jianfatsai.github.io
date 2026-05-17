@@ -1,1 +1,0 @@
-Learning, studying corporate university productivity hack. If the recorded webinar has IT issues, by the tutor, switch the playback speed to the maximum x2; then, once the technical issue is resolved, switch the playback speed to a lower playback speed.   

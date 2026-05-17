@@ -1,1 +1,0 @@
-When your child is playing iPad next to you and you need to do an assignment for school or an important work project, turn on Apple AirPods Pro 3 noise cancelling, ear mask, and a white noise machine.   

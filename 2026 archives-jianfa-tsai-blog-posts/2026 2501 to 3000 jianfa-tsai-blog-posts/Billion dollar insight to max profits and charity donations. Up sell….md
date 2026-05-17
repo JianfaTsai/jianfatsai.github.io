@@ -1,4 +1,0 @@
-# Billion dollar insight to max profits and charity donations. Up sell guest interested in apartment. Sales pitch. You can try apartment for one night. For additional x dollars if you have a change of mind. We can make other arrangements in the morning. Share with global hoteliers.  Don’t sell one week apartment. Too big to swallow. Capitalise on vacant space. Like heroin. Sell a taste to hook. Not sell a bag to first timers.    
-# Billion dollar insight to max profits and charity donations. Up sell guest interested in apartment. Sales pitch. You can try apartment for one night. For additional x dollars if you have a change of mind. We can make other arrangements in the morning. Share with global hoteliers.  Don’t sell one week apartment. Too big to swallow. Capitalise on vacant space. Like heroin. Sell a taste to hook. Not sell a bag to first timers.    
-  
-#reviewed  

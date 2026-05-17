@@ -1,1 +1,0 @@
-Create a Siri app where a user from the home screen can tap on the Siri app widget on the dock of the iPhone to activate Siri conveniently for those who have physical impairments such as finger weakness.   

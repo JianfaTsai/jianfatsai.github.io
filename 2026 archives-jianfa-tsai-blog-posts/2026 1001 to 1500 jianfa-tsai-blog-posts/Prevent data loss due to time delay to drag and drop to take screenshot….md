@@ -1,1 +1,0 @@
-Prevent data loss due to time delay to drag and drop to take screenshot with mice pointer by assign single keyboard key to always take screenshot of entire computer desktop (rapid screenshot), use AI to auto extract useful information or crop later.  

@@ -1,1 +1,0 @@
-Before you step away your vision from the document you are reviewing, scroll the top half that was reviewed out of active view on the screen so the first sentence at the top edge of the document is everything that must be reviewed next.   

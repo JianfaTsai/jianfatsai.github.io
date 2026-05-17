@@ -1,1 +1,0 @@
-Morning dear, can you top up 2UP with another $500 just for emergencies, restaurants, supermarket groceries, water, etc for the family. I won’t charge personal expense to 2UP. Please transfer now. Thank you.  

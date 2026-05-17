@@ -1,2 +1,0 @@
-Don't exchange contact info to ++[buy or sell outside eBay](https://www.ebay.com.au/help/policies/payment-policies/offering-buy-sell-outside-ebay-policy?id=4272)++. We scan and, in case of suspicious activity, manually analyse messages to identify potential fraud and ++[policy violations](https://www.ebay.com.au/help/policies/default/ebay-rules-policies?id=4205)++. ++Learn more++  
-++eBay.ai++ has been enabled  

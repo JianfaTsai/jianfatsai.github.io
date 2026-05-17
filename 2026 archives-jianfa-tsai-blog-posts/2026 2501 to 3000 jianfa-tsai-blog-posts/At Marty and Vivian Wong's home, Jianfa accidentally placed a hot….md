@@ -1,1 +1,0 @@
-Y's home, Jianfa accidentally placed a hot drink given by Y on his wooden table to create a mug burnt ring on the wooden table top. Y, when he passed the drink to me, didn't provide any coasters nor tell me not to put the drink on the coffee table. Z went in the seat on my behalf and lied to Y that she was the one that caused the mark on the table.   

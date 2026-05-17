@@ -1,1 +1,0 @@
-# ADvertise and sell, mini mechanical pump leaf blower to gently blow dusts off the leaf surfaces where fingers are hard to read and the use of hard tools or even semi hard silicone stick wrapped with damp micro fibre cloth may damage the young leaves. ZZ plant   

@@ -1,1 +1,0 @@
-# Always keep a 6-month budget for essential supplies in the bank app. Set a recurring reminder to review bank app budgets weekly. Use the envelope budgeting system by creating different bank accounts. Move funds between bank accounts weekly.   

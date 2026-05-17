@@ -1,4 +1,0 @@
-# secret language via cryptography.  Combine different languages (different cursive, font styles, handwritten or digital) and dialects global and images and drawings where the white spaces between top and bottom rows of sentences and curvature of image or drawing borders create a secret message. Add dimension for more permission. Millimetres distance between each row convey different meaning.  Full phalange section or half phalange section different meaning  
-# secret language via cryptography.  Combine different languages (different cursive, font styles, handwritten or digital) and dialects global and images and drawings where the white spaces between top and bottom rows of sentences and curvature of image or drawing borders create a secret message. Add dimension for more permission. Millimetres distance between each row convey different meaning.  Full phalange section or half phalange section different meaning  
-  
-#reviewed  

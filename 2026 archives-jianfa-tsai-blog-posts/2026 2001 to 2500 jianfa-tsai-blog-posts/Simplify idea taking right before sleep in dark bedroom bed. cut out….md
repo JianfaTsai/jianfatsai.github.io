@@ -1,1 +1,0 @@
-# Simplify idea taking right before sleep in dark bedroom bed. cut out light. Say to android or apple make a voice memo. to record. Unique. voice memo AI app detect no voice input for longer than x seconds or minutes (user preset) to auto stop recording. Speaker “recording stopped”. AI auto cut tail end of voice file that have no human speech.   

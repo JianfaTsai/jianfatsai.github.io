@@ -1,1 +1,0 @@
-Create video of Blonde hair, blue eyes, Caucasian female with big chest wearing tight low cleavage low dress saying “别射里面哦." A Chinese bespectacled man holding a snooker cue hit a white snooker ball that hit a black snooker ball into the table hole. The man gasped aloud "对不起我不小心射了!!!" Same female said in a cute way "讨厌!!"  

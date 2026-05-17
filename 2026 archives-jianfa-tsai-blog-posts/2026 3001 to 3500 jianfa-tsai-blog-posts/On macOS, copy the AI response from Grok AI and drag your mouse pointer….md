@@ -1,1 +1,0 @@
-On macOS, copy the AI response from Grok AI and drag your mouse pointer into the iPad screen to paste into the Notes app to remove the markdown formatting from active view, but the markdown is still saved in the background of the Notes app.   

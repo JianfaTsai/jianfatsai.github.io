@@ -1,1 +1,0 @@
-Interior design: there should only be one light switch on each side of the door frame or wall. If you put two or more light switches on a single panel at the same spot, it causes confusion, decision waste, and fatigue.   

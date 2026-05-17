@@ -1,1 +1,0 @@
-# If an app is not working, quit the app and reopen it. Otherwise, uninstall and reinstall the app.

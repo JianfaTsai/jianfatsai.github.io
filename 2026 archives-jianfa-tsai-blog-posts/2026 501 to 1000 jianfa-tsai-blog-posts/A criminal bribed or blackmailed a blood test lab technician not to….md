@@ -1,1 +1,0 @@
-# A criminal bribed or blackmailed a blood test lab technician not to test for iron. The technician or nurse didn’t check the checkbox, or perhaps due to human error or deliberate bullying. This might be to make the victim undergo a needle jab unnecessarily again and have to fast again. Year 2025 to year 2026.   

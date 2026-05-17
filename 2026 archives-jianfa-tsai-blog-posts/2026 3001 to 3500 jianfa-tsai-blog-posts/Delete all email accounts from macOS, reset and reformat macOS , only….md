@@ -1,1 +1,0 @@
-# Delete all email accounts from macOS, reset and reformat macOS , only leave Apple ID mail app on macOS. Add personal email accounts on iPad and iPhone only. Use work email access account on work laptop only. This prevents malicious links from emails that you accidentally click on from infecting your personal macOS  

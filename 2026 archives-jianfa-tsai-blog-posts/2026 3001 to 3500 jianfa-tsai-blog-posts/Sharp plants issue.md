@@ -1,1 +1,0 @@
-# Sharp plants issue  

@@ -1,1 +1,0 @@
-Utilise nested voice dictation apps for iPhone and macOS. Use the Voice Memo iOS app on your lock screen to record raw idea drafts. Access the Voice Memo macOS app and employ Wispr Flow to voice dictate a full version of your idea based on what you just heard from the Voice Memo macOS app.   

@@ -1,1 +1,0 @@
-Why does my Ulysses macOS app always create new note with the @ as the first sentence and how do I turn this off?

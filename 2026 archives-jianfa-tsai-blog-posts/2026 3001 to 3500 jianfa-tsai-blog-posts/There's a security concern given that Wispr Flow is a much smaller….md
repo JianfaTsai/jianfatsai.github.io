@@ -1,1 +1,0 @@
-There's a security concern given that Wispr Flow is a much smaller company compared to Apple, and the longevity of Wispr Flow may be smaller than Apple. Thus, if Wispr Flow leaks your voice data, or they stop operating, or data is lost as a cover story, you have to retrain your voice data with Apple again.   

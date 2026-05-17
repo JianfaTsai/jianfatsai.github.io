@@ -1,1 +1,0 @@
-# Bakery cashier POS machine (credit card tap section) with a white label and a sharpie arrow to guide customers to tap on the side of the machine. The cashier verbally instructs customers to tap their payment card on the side when they are ready to pay.  

@@ -1,1 +1,0 @@
-# View notes as gallery view in Notes macOS app to rapidly preview which notes are dedicated efforts to finanlised and which notes can be moved into folder DRAFTS - Reviewed. so you can prioritise your limited time and energy to notes of the highest potential and the deepest imapct.   
